@@ -128,7 +128,7 @@ Viduje esant abejonei, jis žino „mano viduje yra abejonė“, arba viduje nes
 
 Taip, jis gyvena kontenpliuodamas reiškinius reiškiniuose viduje, arba gyvena kontenpliuodamas reiškinius reiškiniuose išorėje, arba gyvena kontenpliuodamas reiškinius reiškiniuose viduje ir išorėje. Jis gyvena kontenpliuodamas atsiradimo prigimtį reiškiniuose, arba gyvena kontenpliuodamas irimo prigimtį reiškinių atžvilgiu, arba gyvena kontenpliuodamas atsiradimo ir irimo prigimtį reiškinių atžvilgiu. Arba jame yra įsteigtas atidumas „yra reiškiniai“, toks, kad to pakanka žinojimui ir besitęsiančiam atidumui. Jis gyvena nepriklausomas ir pasaulyje prie nieko neprisiriša. Taip irgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuose surištus su penkiomis kliūtimis.
 
-### Reiškinių kontenpliacija, komponentų skyrius
+### Reiškinių kontenpliacija, sankaupų skyrius
 
 *Dhammānupassanā khandhapabbaṃ*
 
