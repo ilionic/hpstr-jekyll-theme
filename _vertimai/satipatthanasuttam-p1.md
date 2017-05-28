@@ -164,7 +164,7 @@ Ir vėlgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuo
 
 Viduje esant reiškinių tyrinėjimo atbudimo veiksniui, žino „mano viduje yra reiškinių tyrinėjimo atbudimo veiksnys“, arba viduje nesant reiškinių tyrinėjimo atbudimo veiksniui, žino „mano viduje nėra reiškinių tyrinėjimo atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs reiškinių tyrinėjimo atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs reiškinių tyrinėjimo atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
-Viduje esant veiklumo[^2] atbudimo veiksniui, žino „mano viduje yra veiklumo atbudimo veiksnys“, arba viduje nesant pastangos atbudimo veiksniui, žino „mano viduje nėra veiklumo atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs veiklumo atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs veiklumo atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
+Viduje esant energingumo[^2] atbudimo veiksniui, žino „mano viduje yra energingumo atbudimo veiksnys“, arba viduje nesant energingumo atbudimo veiksniui, žino „mano viduje nėra energingumo atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs energingumo atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs energingumo atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
 Viduje esant gėrėjimosi atbudimo veiksniui, žino „mano viduje yra gėrėjimosi atbudimo veiksnys“, arba viduje nesant gėrėjimosi atbudimo veiksniui, žino „mano viduje nėra gėrėjimosi atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs gėrėjimosi atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs gėrėjimosi atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
