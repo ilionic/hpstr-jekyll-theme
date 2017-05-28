@@ -184,7 +184,7 @@ Ir vėlgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuo
 
 Taip, jis gyvena kontenpliuodamas reiškinius reiškiniuose viduje, arba gyvena kontenpliuodamas reiškinius reiškiniuose išorėje, arba gyvena kontenpliuodamas reiškinius reiškiniuose viduje ir išorėje. Jis gyvena kontenpliuodamas atsiradimo prigimtį reiškiniuose, arba gyvena kontenpliuodamas irimo prigimtį reiškinių atžvilgiu, arba gyvena kontenpliuodamas atsiradimo ir irimo prigimtį reiškinių atžvilgiu. Arba jame yra įsteigtas atidumas „yra reiškiniai“, toks, kad to pakanka žinojimui ir besitęsiančiam atidumui. Jis gyvena nepriklausomas ir pasaulyje prie nieko neprisiriša. Taip irgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuose surištus su keturiomis tauriosiomis tiesomis.
 
-Bet kas, vienuoliai, septynis metus taip vystęs šiuos keturis atidumo įsteigimus, gali tikėtis vieno iš šių dviejų vaisių: [arahanto] žinojimo čia ir dabar arba, jei vis dar yra gyvenimo kuro [priklausomybės nuo būties], anagamio [būvio].
+Bet kas, vienuoliai, septyneris metus taip vystęs šiuos keturis atidumo įsteigimus, gali tikėtis vieno iš šių dviejų vaisių: [arahanto] žinojimo čia ir dabar arba, jei vis dar yra gyvenimo kuro [priklausomybės nuo būties], anagamio [būvio].
 
 Ką jau ten, vienuoliai, septyneri metai. Bet kas, taip vystęs šiuos keturis atidumo įsteigimus šešeris metus ... penkeris metus... ketveris metus... trejis metus... dvejis metus... vieneris metus... Ką jau ten, vienuoliai, vieneri metai. Bet kas, taip vystęs šiuos keturis atidumo įsteigimus septynis mėnesius, gali tikėtis vieno iš šių dviejų vaisių: [arahanto] žinojimo čia ir dabar arba, jei vis dar yra gyvenimo kuro [priklausomybės nuo būties], anagamio [būvio].
 
