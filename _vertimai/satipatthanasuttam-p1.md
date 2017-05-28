@@ -164,7 +164,7 @@ Ir vėlgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuo
 
 Viduje esant reiškinių tyrinėjimo atbudimo veiksniui, žino „mano viduje yra reiškinių tyrinėjimo atbudimo veiksnys“, arba viduje nesant reiškinių tyrinėjimo atbudimo veiksniui, žino „mano viduje nėra reiškinių tyrinėjimo atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs reiškinių tyrinėjimo atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs reiškinių tyrinėjimo atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
-Viduje esant energingumo[^2] atbudimo veiksniui, žino „mano viduje yra energingumo atbudimo veiksnys“, arba viduje nesant energingumo atbudimo veiksniui, žino „mano viduje nėra energingumo atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs energingumo atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs energingumo atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
+Viduje esant energingumo atbudimo veiksniui, žino „mano viduje yra energingumo atbudimo veiksnys“, arba viduje nesant energingumo atbudimo veiksniui, žino „mano viduje nėra energingumo atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs energingumo atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs energingumo atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
 Viduje esant gėrėjimosi atbudimo veiksniui, žino „mano viduje yra gėrėjimosi atbudimo veiksnys“, arba viduje nesant gėrėjimosi atbudimo veiksniui, žino „mano viduje nėra gėrėjimosi atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs gėrėjimosi atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs gėrėjimosi atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
@@ -172,7 +172,7 @@ Viduje esant ramybės atbudimo veiksniui, žino „mano viduje yra ramybės atbu
 
 Viduje esant susitelkimo atbudimo veiksniui, žino „mano viduje yra susitelkimo atbudimo veiksnys“, arba viduje nesant susitelkimo atbudimo veiksniui, žino „mano viduje nėra susitelkimo atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs susitelkimo atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs susitelkimo atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
-Viduje esant lygiažiūros[^3] atbudimo veiksniui, žino „mano viduje yra lygiažiūros atbudimo veiksnys“, arba viduje nesant lygiažiūros atbudimo veiksniui, žino „mano viduje nėra lygiažiūros atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs lygiažiūros atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs lygiažiūros atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
+Viduje esant lygiažiūros[^2] atbudimo veiksniui, žino „mano viduje yra lygiažiūros atbudimo veiksnys“, arba viduje nesant lygiažiūros atbudimo veiksniui, žino „mano viduje nėra lygiažiūros atbudimo veiksnio“, ir kaip atsiranda dar neatsiradęs lygiažiūros atbudimo veiksnys, jis taip pat žino, ir kaip atsiradęs lygiažiūros atbudimo veiksnys yra vystomas ir ištobulinamas, jis taip pat žino.
 
 Taip, jis gyvena kontenpliuodamas reiškinius reiškiniuose viduje, arba gyvena kontenpliuodamas reiškinius reiškiniuose išorėje, arba gyvena kontenpliuodamas reiškinius reiškiniuose viduje ir išorėje. Jis gyvena kontenpliuodamas atsiradimo prigimtį reiškiniuose, arba gyvena kontenpliuodamas irimo prigimtį reiškinių atžvilgiu, arba gyvena kontenpliuodamas atsiradimo ir irimo prigimtį reiškinių atžvilgiu. Arba jame yra įsteigtas atidumas „yra reiškiniai“, toks, kad to pakanka žinojimui ir besitęsiančiam atidumui. Jis gyvena nepriklausomas ir pasaulyje prie nieko neprisiriša. Taip irgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuose surištus su septynias atbudimo veiksniais.
 
@@ -219,8 +219,6 @@ Kūno kontenpliacija, pozų skyrius
 
 [^1]: Comy: „Kūnas“ čia minimas du kartus tam, kad apibrėžti ir atskirti objektą ir nuodėm atsijoti tariamą vientisumo reiškinių prigimtį. Dėl to kad nei jausmai, nei sąmonė, nei protiniai reiškiniai nėra kontenpliuojami, bet tik kūnas, šis nurodymas kontenpliuoti kūną tik tame kas vadinama kūnu aiškina apibrėžimą atskyrimu. Kūne kontenpliuojamas ne vienas vienalytis daiktas, o atskiros jo sudedamos dalys, plaukai, kūno plaukeliai ir t.t. Kūne be keturių didžiųjų elementų ir išvestinės iš jų materijos nėra nieko kito... Taip pat, kai kūnas kontenpliuojamas tik kaip kūnas, nėra kontenpliuojama nieko kito. Ką tai reiškia? Šiame laikiname kūne, kuris yra kentėjimas, neturi savasties ir yra negražus, nematomi nei pastovumas, nei malonumas, nei savastis, nei grožis. Kūno kontenpliacija tėra tokių savybių kaip nepastovumas, kentėjimas, nesavastingumas ir negražumas kontenpliacija. Ir dėl to, kad kūnas nėra kontenpliuojamas kaip vienaip ar kitaip surištas su savastimi ar su tuo, kas priklauso savasčiai, dėl to kad kontenpliuojami plaukai, plaukeliai ir t.t., kontenpliacija vyksta kūne, kūne, kuris susideda iš plaukų, plaukelių ir t.t.. 
 
-[^2]: Veiklumas (*viriya*) - aktyvumas, energingumas, pastangų dėjimas.
-
-[^3]: Lygiažiūra (*upekkha*) - ne abejingumo, bet bešališko požiūrio į reiškinius prasme; pirmenybės neteikimas, nenusistatymas prieš nieką.
+[^2]: Lygiažiūra (*upekkha*) - ne abejingumo, bet bešališko požiūrio į reiškinius prasme; pirmenybės neteikimas, nenusistatymas prieš nieką.
 
 <a href="../satipatthanasuttam-p2" class="btn btn-primary btn-next">Kitas →</a>
