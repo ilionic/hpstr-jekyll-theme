@@ -185,7 +185,7 @@ Ir vėlgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuo
 
 *Dukkhasaccaniddeso*
 
-Ir kas, vienuoliai, yra kentėjimo taurioji tiesa? Ir gimimas yra kentėjimas, ir senėjimas yra kentėjimas, ir mirtis yra kentėjimas, ir liūdesys, raudojimas, skausmas, nusiminimas, nerimas yra kentėjimas, susidūrimas su tuo kas nemiela yra kentėjimas, išsiskyrimas su tuo kas miela yra kentėjimas, negavimas to ko norisi irgi yra kentėjimas; trumpiau penki prisirišimo komponentai yra kentėjimas.
+Ir kas, vienuoliai, yra kentėjimo taurioji tiesa? Ir gimimas yra kentėjimas, ir senėjimas yra kentėjimas, ir mirtis yra kentėjimas, ir liūdesys, raudojimas, skausmas, nusiminimas, nerimas yra kentėjimas, susidūrimas su tuo kas nemiela yra kentėjimas, išsiskyrimas su tuo kas miela yra kentėjimas, negavimas to ko norisi irgi yra kentėjimas; trumpiau, penkios sankaupos prie kurių galima prisirišti yra kentėjimas.
 
 Ir kas yra gimimas? Bet kokių būtybių bet kokioje būtybių klasėje pradėjimas, prigimimas, atgimimas, sankaupų atsiradimas, [jausmo] pagrindų įgijimas yra vadinamas gimimu.
 
