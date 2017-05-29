@@ -193,7 +193,7 @@ Ir kas, vienuoliai, yra senėjimas? Bet kokių būtybių esančių bet kokioje b
 
 Ir kas, vienuoliai, yra mirtis? Bet kokių būtybių išnykimas, pranykimas iš bet kokios būtybių klasės, susiskaidymas, pradingimas, giltinė, mirtis, galo gavimas, sankaupų susiskaidymas, griaučių numetimas, gyvybinės jėgos nutrūkimas yra vadinamas mirtimi.
 
-Ir kas, vienuoliai, yra liūdesys? Liūdesys, liūdėjimas, graudulys, sielvartas, širdgėla to, ką užpuolė kokia nors nelaimė, ką palietė koks nors skausmą sukeliantis reiškinys, yra vadinamas liūdesiu.
+Ir kas, vienuoliai, yra liūdesys? Užpulto kokios nors nelaimės, kokio nors skausmą sukeliančio reiškinio paliestojo liūdesys, liūdėjimas, graudulys, sielvartas, širdgėla, yra vadinami liūdesiu.
 
 Ir kas, vienuoliai, yra raudojimas? Aimanavimas, raudojimas, verksmas, rauda, verkimas, raudonė, to ką užpuolė kokia nors nelaimė, ką palietė koks nors skausmą sukeliantis reiškinys, yra vadinama raudojimu.
 
