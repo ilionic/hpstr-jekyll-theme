@@ -273,19 +273,19 @@ Galvojimas apie formą pasaulyje... Galvojimas apie garsą pasaulyje... Galvojim
 
 Ir kas, vienuoliai, yra kelio, vedančio į kentėjimo išnykimą taurioji tiesa? Tai yra taurusis aštuonialypis kelias, tai yra: teisingas požiūris, teisingas ketinimas, teisinga kalba, teisingas veiksmas, teisingas pragyvenimo šaltinis, teisinga pastanga, teisingas atidumas, teisingas susitelkimas.
 
-Ir kas, vienuoliai, yra teisingas požiūris? Kentėjimo žinojimas, kentėjimo priežasties žinojimas, kentėjimo išnykimo žinojimas, kelio vedančio į kentėjimo išnykimą žinojimas yra vadinamas teisingu požiūriu.
+Ir kas, vienuoliai, yra teisingas požiūris? Kentėjimo žinojimas, kentėjimo priežasties žinojimas, kentėjimo išnykimo žinojimas, kelio vedančio į kentėjimo išnykimą žinojimas yra vadinami teisingu požiūriu.
 
-Ir kas, vienuoliai, yra teisingas ketinimas? Ketinimas atsižadėti, ketinimas be piktanoriškumo, nežalojimo ketinimas yra vadinamas teisingu ketinimu.
+Ir kas, vienuoliai, yra teisingas ketinimas? Ketinimas atsižadėti, ketinimas nepagrįstas pikta valia, ketinimas nežaloti yra vadinami teisingu ketinimu.
 
-Ir kas, vienuoliai, yra teisinga kalba? Susilaikymas nuo melagystės, susilaikymas nuo šmeižto, susilaikymas nuo šiurkščios kalbos, susilaikymas nuo tuščių plepalų yra vadinamas teisinga kalba.
+Ir kas, vienuoliai, yra teisinga kalba? Susilaikymas nuo melagystės, susilaikymas nuo šmeižto, susilaikymas nuo šiurkščios kalbos, susilaikymas nuo tuščių plepalų yra vadinami teisinga kalba.
 
-Ir kas, vienuoliai, yra teisingas veiksmas? Susilaikymas nuo žudymo, susilaikymas nuo netiesos sakymo, susilaikymas nuo neskaistumo yra vadinamas teisingu veiksmu.
+Ir kas, vienuoliai, yra teisingas veiksmas? Susilaikymas nuo žudymo, susilaikymas nuo netiesos sakymo, susilaikymas nuo ištvirkavimo yra vadinami teisingu veiksmu.
 
-Ir kas, vienuoliai, yra teisingas pragyvenimo šaltinis? [Kai] tauriųjų mokinys, atsisakęs neteisingą pragyvenimo šaltinį, verčiasi teisingu pragyvenimo šaltiniu, tai vadinama teisingu pragyvenimo šaltiniu.
+Ir kas, vienuoliai, yra teisingas pragyvenimo šaltinis? Štai, tauriųjų mokinys, atsisakęs neteisingo pragyvenimo šaltinio, verčiasi teisingu pragyvenimo šaltiniu, tai vadinama teisingu pragyvenimo šaltiniu.
 
 Ir kas, vienuoliai, yra teisinga pastanga? Štai, vienuolis užsidega noru, kad atsiradusios blogos, nedoros būsenos neatsirastų, jis stengiasi, deda pastangas, energingai naudoja protą, siekia to; užsidega noru pašalinti atsiradusias blogas, nedoras būsenas.... užsidega noru, kad neatsiradusios doros būsenos atsirastų... užsidega noru atsiradusias doras būsenas įtvirtinti, padaryti neabejotinomis, dauginti, pilnai išvystyti, ištobulinti, jis stengiasi, deda pastangas, energingai naudoja protą, siekia to. Tai, vienuoliai, vadinama teisinga pastanga.
 
-Ir kas, vienuoliai, yra teisingas atidumas? Štai, vienuolis gyvena kūno atžvilgiu kontempliuodamas kūną, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena jausmų atžvilgiu kontempliuodamas jausmus, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena proto atžvilgiu kontempliuodamas protą, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena reiškinių atžvilgiu kontempliuodamas reiškinius, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu. Tai vadinama teisingu atidumu.
+Ir kas, vienuoliai, yra teisingas atidumas? Štai, vienuoliai, vienuolis gyvena kontenpliuodamas kūną kūne, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena kontenpliuodamas jausmus jausmuose, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena kontenpliuodamas protą prote, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena kontenpliuodamas reiškinius reiškiniuose, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu. Tai vadinama teisingu atidumu.
 
 Ir kas, vienuoliai, yra teisingas susitelkimas? Štai, vienuolis atsitolinęs nuo juslinių malonumų, atsitolinęs nuo nedorų būsenų, pasiekia pirmąją džhaną, kuri yra su pirminiu pritaikymu, ilgalaikiu taikymu, su dėl atsiskyrimo gimusiais gėrėjimusi ir laime, ir būna joje. Kai liaunasi pradinis pritaikymas ir ilgalaikis taikymas, su iš vidaus nurimusiu protu sutelktu į vieną [objektą] jis pasiekia antrąją džhaną, kuri yra be pradinio pritaikymo, be ilgalaikio taikymo, su dėl susitelkimo gimusiais gėrėjimusi ir laime, ir būna joje. Išblėsus gėrėjimuisi, jis būna pusiausviro proto, atidus ir aiškiai suprantantis, ir kūnu patyria laimę, jis pasiekia trečiąją džhaną ir būna joje, taurieji nupasakoja tai taip: "Jis būna laimingas, pusiausviras ir atidus". Atsisakęs nuo malonių ir nemalonių pojūčių, peržengęs ankstesniuos laimę ir nusiminimą, jis pasiekia ketvirtąją džhaną: be nemalonių ir malonių pojūčių, su atidumo išgryninta [proto] pusiausvyra ir būna joje. Tai, vadinama teisingu susitelkimu. Tai, vienuoliai, vadinama kelio, vedančio į kentėjimo išnykimą tauriąja tiesa.
 
