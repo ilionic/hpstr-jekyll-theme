@@ -193,15 +193,15 @@ Ir kas, vienuoliai, yra senėjimas? Bet kokių būtybių esančių bet kokioje b
 
 Ir kas, vienuoliai, yra mirtis? Bet kokių būtybių išnykimas, pranykimas iš bet kokios būtybių klasės, susiskaidymas, pradingimas, giltinė, mirtis, galo gavimas, sankaupų susiskaidymas, griaučių numetimas, gyvybinės jėgos nutrūkimas yra vadinamas mirtimi.
 
-Ir kas, vienuoliai, yra liūdesys? Užpulto kokios nors nelaimės, paliestojo kokio nors skausmą sukeliančio reiškinio liūdesys, liūdėjimas, graudulys, sielvartas, širdgėla, yra vadinami liūdesiu.
+Ir kas, vienuoliai, yra liūdesys? Užpultojo kokios nors nelaimės, paliestojo kokio nors skausmingo reiškinio liūdesys, liūdėjimas, graudulys, sielvartas, širdgėla yra vadinami liūdesiu.
 
-Ir kas, vienuoliai, yra raudojimas? Aimanavimas, raudojimas, verksmas, rauda, verkimas, raudonė, to ką užpuolė kokia nors nelaimė, ką palietė koks nors skausmą sukeliantis reiškinys, yra vadinama raudojimu.
+Ir kas, vienuoliai, yra raudojimas? Užpultojo kokios nors nelaimės, paliestojo kokio nors skausmingo reiškinio aimanavimas, raudojimas, verksmas, rauda, verkimas, raudonė yra vadinami raudojimu.
 
 Ir kas, vienuoliai, yra skausmas? Skausmas kūne, tai kas nemalonu kūnui, dėl sąlyčio su kūnu jaučiamas nemalonus skausmas yra vadinama skausmu.
 
 Ir kas, vienuoliai, yra nusiminimas? Mentalinis skausmas, tai kas nemalonu protui, dėl sąlyčio su protu jaučiamas nemalonus skausmas yra vadinama nusiminimu.
 
-Ir kas, vienuoliai, yra nerimas? Nerimavimas, nerimas, neramumas, susijaudinimas to, ką užpuolė kokia nors nelaimė, ką palietė koks nors skausmą sukeliantis reiškinys, yra vadinamas nerimu.
+Ir kas, vienuoliai, yra nerimas? Užpultojo kokios nors nelaimės, paliestojo kokio nors skausmingo reiškinio nerimavimas, nerimas, neramumas, susijaudinimas yra vadinami nerimu.
 
 Ir kas, vienuoliai, yra susidūrimas su tuo kas nemiela? Štai, [žmogus] susiduria, susieina, susitinka, būna tarp formomų, garsų, kvapų, skonių, kūnu liečiamų, proto objektų, kurie yra nepriimtini, nemalonus, arba tarp tų, kas linki nesėkmės, linki vargo, linki keblumų, linki nesaugumo. Tai vadinama susidūrimu su tuo kas nemiela.
 
