@@ -27,7 +27,7 @@ Palaimintasis pasakė štai ką:
 
 Kurie keturi? Štai, vienuoliai, vienuolis gyvena kontenpliuodamas kūną kūne[^1], būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena kontenpliuodamas jausmus jausmuose, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena kontenpliuodamas protą prote, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu; gyvena kontenpliuodamas reiškinius reiškiniuose, būdamas uolus, su aiškiu supratimu, atidus, be godulio ir nepasitenkinimo pasauliu.  
 
-###Kūno kontenpliacija, atidumo kvėpavimui skyrius###
+###Kūno kontenpliacija, atidumo kvėpavimui skyrius
 
 *Kāyānupassanā ānāpānapabbaṃ*
 
