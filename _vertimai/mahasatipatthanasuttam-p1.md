@@ -249,7 +249,7 @@ Bet kurgi, vienuoliai, šis troškimas pašalinamas būna pašalintas, kur išny
 
 Ir kas pasaulyje iš prigimties yra miela, kas iš prigimties yra malonu? Akis pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta. Ausis pasaulyje... Nosis pasaulyje... Liežuvis pasaulyje... Kūnas pasaulyje... Protas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
 
-‘Formos pasaulyje... Garsai pasaulyje... Kvapai pasaulyje... Skoniai pasaulyje... Kūnu jaučiama pasaulyje... Proto objektai pasaulyje iš prigimties yra mieli, iš prigimties yra malonūs, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
+Formos pasaulyje... Garsai pasaulyje... Kvapai pasaulyje... Skoniai pasaulyje... Kūnu jaučiama pasaulyje... Proto objektai pasaulyje iš prigimties yra mieli, iš prigimties yra malonūs, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
 
 Akies sąmonė pasaulyje... Ausies sąmonė pasaulyje... Nosies sąmonė pasaulyje... Liežuvio sąmonė pasaulyje... Kūno sąmonė pasaulyje... Proto sąmonė pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
 
@@ -259,7 +259,7 @@ Dėl akies sąlyčio gimstantis jausmas pasaulyje... Dėl ausies sąlyčio gimst
 
 Formos suvokimas pasaulyje... Garso suvokimas pasaulyje... Kvapo suvokimas pasaulyje... Skonio suvokimas pasaulyje... Kūnu jaučiamo suvokimas pasaulyje... Proto objekto suvokimas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
 
-Čėtana formos atžvilgiu pasaulyje... Čėtana garso atžvilgiu pasaulyje... Čėtana kvapo atžvilgiu pasaulyje... Čėtana skonio atžvilgiu pasaulyje... Čėtana kūnu jaučiamo atžvilgiu pasaulyje... Čėtana proto objekto atžvilgiu pasaulyje iš prigimties yra mielas, iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
+Su forma susijusi čėtana pasaulyje... Su garsu susijusi čėtana pasaulyje... Su kvapu susijusi čėtana pasaulyje... Su skoniu susijusi čėtana pasaulyje... Su kūnu jaučiamu susijusi čėtana pasaulyje... Su proto objektu susijusi čėtana pasaulyje iš prigimties yra mielas, iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
 
 Formų troškimas pasaulyje... Garsų troškimas pasaulyje... Kvapų troškimas pasaulyje... Skonių troškimas pasaulyje... Kūnu jaučiamo troškimas pasaulyje... Proto objektų troškimas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas pašalinamas būna pašalintas, ten išnykdamas jis išnyksta.
 
