@@ -187,11 +187,11 @@ Ir vėlgi, vienuoliai, vienuolis gyvena kontenpliuodamas reiškinius reiškiniuo
 
 Ir kas, vienuoliai, yra kentėjimo taurioji tiesa? Ir gimimas yra kentėjimas, ir senėjimas yra kentėjimas, ir mirtis yra kentėjimas, ir liūdesys, raudojimas, skausmas, nusiminimas, nerimas yra kentėjimas, susidūrimas su tuo kas nemiela yra kentėjimas, išsiskyrimas su tuo kas miela yra kentėjimas, negavimas to ko norisi irgi yra kentėjimas; trumpiau penki prisirišimo komponentai yra kentėjimas.
 
-Ir kas yra gimimas? Bet kokių būtybių bet kokioje būtybių klasėje pradėjimas, prigimimas, atgimimas, [jausmo] pagrindų įgijimas yra vadinamas gimimu.
+Ir kas yra gimimas? Bet kokių būtybių bet kokioje būtybių klasėje pradėjimas, prigimimas, atgimimas, sankaupų atsiradimas, [jausmo] pagrindų įgijimas yra vadinamas gimimu.
 
 Ir kas, vienuoliai, yra senėjimas? Bet kokių būtybių esančių bet kokioje būtybių klasėje senėjimas, senatvė, subyrėję dantys, žilumas, susiraukšlėjimas, gyvybinių jėgų nykimas, gebėjimų sumenkėjimas yra vadinamas senėjimu.
 
-Ir kas, vienuoliai, yra mirtis? Bet kokių būtybių išnykimas, pranykimas iš bet kokios būtybių klasės, susiskaidymas, pradingimas, giltinė, mirtis, galo gavimas, komponentų susiskaidymas, griaučių numetimas, gyvybinės jėgos nutrūkimas yra vadinamas mirtimi.
+Ir kas, vienuoliai, yra mirtis? Bet kokių būtybių išnykimas, pranykimas iš bet kokios būtybių klasės, susiskaidymas, pradingimas, giltinė, mirtis, galo gavimas, sankaupų susiskaidymas, griaučių numetimas, gyvybinės jėgos nutrūkimas yra vadinamas mirtimi.
 
 Ir kas, vienuoliai, yra liūdesys? Liūdesys, liūdėjimas, graudulys, sielvartas, širdgėla to, ką užpuolė kokia nors nelaimė, ką palietė koks nors skausmą sukeliantis reiškinys, yra vadinamas liūdesiu.
 
