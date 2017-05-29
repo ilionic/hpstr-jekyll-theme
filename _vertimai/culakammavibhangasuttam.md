@@ -19,7 +19,7 @@ Vieną kartą Palaimintasis buvo apsistojęs Savathėje, Džėtos girioje, Anath
 
 —Jaunuoli, būtybės yra veiksmų savininkai, veiksmų įpėdiniai, veiksmai yra jų pradėjimas, jų giminės, būtybės yra [savo] veiksmų prieglobstyje. Veiksmai yra tai, kas suskirsto būtybes į žemesnes ir viršesnes.
 
-—Na nesuprantu aš tikslios prasmės šios Gerbiamojo Gotamos trumpos, tikslios prasmės neišreiškiančios kalbos. Būtų gerai, jei Gerbiamasis Gotama pamokytų manęs Dhammos taip, kad aš suprasčiau tikslią prasmę šios Gerbiamojo Gotamos trumpos, tikslios prasmės neišreiškiančios kalbos.
+—Na nesuprantu aš tikslios prasmės šios Gerbiamojo Gotamos trumpos, tikslios prasmės neišreiškiančios kalbos. Būtų gerai, jei Gerbiamasis Gotama pamokytų manęs Dharmos taip, kad aš suprasčiau tikslią prasmę šios Gerbiamojo Gotamos trumpos, tikslios prasmės neišreiškiančios kalbos.
 
 —Na tada, jaunuoli, klausyki, sutelki visą dėmesį, kalbėsiu.
 
