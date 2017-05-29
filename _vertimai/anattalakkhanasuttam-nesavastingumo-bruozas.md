@@ -20,7 +20,7 @@ Vieną kartą Palaimintasis buvo apsistojęs Varanasyje Išminčių vietovėje E
 
 Palaimintasis štai ką pasakė:
 
-— Materija, vienuoliai, yra ne-savastis. Nes jeigu materija būtų savastimi, ji nevestų prie ligų, ir panorėjus: "lai mano materija būna tokia, o šitokia lai mano materija nebūna", iš jos galima būtų tai gauti. Bet dėl to gi, vienuoliai, kad materija yra ne-savastis, ji veda prie ligų, ir panorėjus: "lai mano materija būna tokia, o šitokia lai mano materija nebūna", iš jos negalima to gauti.
+— Materija, vienuoliai, yra ne-savastis. Nes jeigu materija būtų savastimi, ji nevestų prie ligų, ir panorėjus: „tebūna mano materija tokia, o šitokia tegul mano materija nebūna“, iš jos galima būtų tai gauti. Bet dėl to gi, vienuoliai, kad materija yra ne-savastis, ji veda prie ligų, ir panorėjus: „tebūna mano materija tokia, o šitokia tegul mano materija nebūna“, iš jos negalima to gauti.
 
 Jausmas yra ne-savastis...
 
@@ -28,7 +28,7 @@ Suvokimas yra ne-savastis...
 
 Proto dariniai yra ne-savastis...
 
-Sąmonė yra ne-savastis. Nes jeigu sąmonė, vienuoliai, būtų savastimi, ši sąmonė nevestų prie ligų, ir panorėjus: "lai mano sąmonė būna tokia, o šitokia lai mano sąmonė nebūna", iš jos galima būtų tai gauti. Bet dėl to gi, vienuoliai, kad sąmonė yra ne-savastis, sąmonė veda prie ligų, ir panorėjus: "lai mano sąmonė būna tokia, o šitokia lai mano sąmonė nebūna", iš jos negalima to gauti.
+Sąmonė yra ne-savastis. Nes jeigu sąmonė, vienuoliai, būtų savastimi, ši sąmonė nevestų prie ligų, ir panorėjus: „tebūna mano sąmonė tokia, o šitokia tegul mano sąmonė nebūna“, iš jos galima būtų tai gauti. Bet dėl to gi, vienuoliai, kad sąmonė yra ne-savastis, sąmonė veda prie ligų, ir panorėjus: „tebūna mano sąmonė tokia, o šitokia tegul mano sąmonė nebūna“, iš jos negalima to gauti.
 
 — Kaip jūs manote, vienuoliai, materija pastovi ar nepastovi?
 
@@ -38,7 +38,7 @@ Sąmonė yra ne-savastis. Nes jeigu sąmonė, vienuoliai, būtų savastimi, ši 
 
 — Kančia, Gerbiamasis.
 
-— O ar išmanu į tai, kas yra nepastovu, kančia ir turi prigimtį keistis, žiūrėti taip, "tai yra mano, tai esu aš, tai manasis 'aš'?"
+— O ar išmanu į tai, kas yra nepastovu, kančia ir turi prigimtį keistis, žiūrėti taip: „tai yra mano, tai esu aš, tai manasis „aš“?“
 
 — Tikrai ne, Gerbiamasis.
 
@@ -62,11 +62,11 @@ Sąmonė yra ne-savastis. Nes jeigu sąmonė, vienuoliai, būtų savastimi, ši 
 
 — Kančia, Gerbiamasis.
 
-— O ar išmanu žiūrėti į tai, kas yra nepastovu, kančia ir turi prigimtį keistis, taip, "tai yra mano, tai esu aš, tai manasis 'aš'?"
+— O ar išmanu žiūrėti į tai, kas yra nepastovu, kančia ir turi prigimtį keistis, taip: „tai yra mano, tai esu aš, tai manasis „aš“?“
 
 — Tikrai ne, Gerbiamasis.
 
-— Todėl, vienuoliai, bet kokia materija - ar tai praeityje, dabar, ar ateityje, ar vidinė, ar išorinė, ar akivaizdi, ar subtili, ar žemesnė, ar viršesnė, ar toli, ar arti - visa materija, "nėra mano, nėra 'aš', nėra manasis 'aš'". Tas su teisinga išmintimi turi būti pamatyta taip, kaip tai iš tiesų yra.
+— Todėl, vienuoliai, bet kokia materija - ar praeities, dabarties, ar ateities, ar vidinė, ar išorinė, ar akivaizdi, ar subtili, ar žemesnė, ar viršesnė, ar toli, ar arti - visa materija: „nėra mano, nėra „aš“, nėra manasis „aš““. Tas su teisinga išmintimi turi būti pamatyta taip, kaip tai iš tiesų yra.
 
 Bet koks jausmas ...
 
@@ -74,11 +74,11 @@ Bet koks suvokimas...
 
 Bet kokie proto dariniai...
 
-Bet kuri sąmonė - ar tai praeityje, dabar, ar ateityje, ar vidinė, ar išorinė, ar akivaizdi, ar subtili, ar žemesnė, ar viršesnė, ar arti, ar toli - visa sąmonė, "ne mano, nėra 'aš', nėra manasis 'aš'". Tas su teisinga išmintimi turi būti pamatyta taip, kaip tai iš tiesų yra.
+Bet kuri sąmonė - ar praeities, dabarties, ar ateities, ar vidinė, ar išorinė, ar akivaizdi, ar subtili, ar žemesnė, ar viršesnė, ar arti, ar toli - visa sąmonė: „nėra mano, nėra „aš“, nėra manasis „aš““. Tas su teisinga išmintimi turi būti pamatyta taip, kaip tai iš tiesų yra.
 
-Tai pamatęs, vienuoliai, apsišvietęs tauriųjų mokinys nusivilia materija, jausmu, suvokimu, proto dariniais ir sąmone. Nusivylus, užgęsta potraukis. Užgesus potraukiui, išsilaisvinama. Išsilaisvinus, ateina supratimas: 'Išsilaisvinęs'. Jis supranta, "Panaikintas gimimas, nugyventas šventas gyvenimas, padaryta tai, kas turi būti padaryta, nebebus daugiau šio būvio".
+Tai pamatęs, vienuoliai, apsišvietęs tauriųjų mokinys nusivilia materija, jausmu, suvokimu, proto dariniais ir sąmone. Nusivylus, užgęsta potraukis. Užgesus potraukiui, išsilaisvinama. Išsilaisvinus, ateina supratimas: „Išsilaisvinęs“. Jis supranta: „Panaikintas gimimas, nugyventas šventas gyvenimas, padaryta tai, kas turi būti padaryta, nebebus daugiau šio būvio“.
 
-Tai pasakė Palaimintasis. Pamalonintas vienuolių penketukas džiaugėsi Palaimintojo kalba. Ir tuo pat metu, kai buvo duodamas šis išaiškinimas, išdėstymas, vienuolių penketuko protai dėl neprisirišimo išsilaisvino nuo intakų. 
+Tai pasakė Palaimintasis. Pamalonintas vienuolių penketukas džiaugėsi Palaimintojo kalba. Negana to, šio išaiškinimo, išdėstymo metu vienuolių penketuko protai dėl neprisirišimo išsilaisvino nuo intakų. 
 
 ## Anattalakkhaṇasuttaṃ (Nesavastingumo bruožas, SNIII.I.vi.7)
 
