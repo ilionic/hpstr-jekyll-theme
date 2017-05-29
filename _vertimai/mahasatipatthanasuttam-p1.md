@@ -217,27 +217,27 @@ Vienuoliai, ir kas yra „trumpiau, penkios sankaupos prie kurių galima prisiri
 
 Ir kas, vienuoliai, yra kentėjimo priežasties taurioji tiesa? Tai yra tas troškimas, kuris veda į pakartotiną būtį, susijęs su džiugesiu ir geismu, siekiantis džiugesio tai šian, tai ten, tai yra juslinių malonumų troškimas, būties troškimas, nebūties troškimas.
 
-Bet kurgi, vienuoliai, šis troškimas gimdamas gimsta, kur jis būdamas būna? Tame kas pasaulyje iš prigimties yra miela, kas iš prigimties yra malonu, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Bet kurgi, vienuoliai, šis troškimas gimdamas gimsta, kur jis įsikurdamas įsikuria? Tame kas pasaulyje iš prigimties yra miela, kas iš prigimties yra malonu, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Ir kas pasaulyje iš prigimties yra miela, kas iš prigimties yra malonu? Akis pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis būdamas būna. Ausis pasaulyje... Nosis pasaulyje... Liežuvis pasaulyje... Kūnas pasaulyje... Protas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Ir kas pasaulyje iš prigimties yra miela, kas iš prigimties yra malonu? Akis pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria. Ausis pasaulyje... Nosis pasaulyje... Liežuvis pasaulyje... Kūnas pasaulyje... Protas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Formos pasaulyje... Garsai pasaulyje... Kvapai pasaulyje... Skoniai pasaulyje... Kūnu jaučiama pasaulyje... Proto objektai pasaulyje iš prigimties yra mieli, iš prigimties yra malonūs, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Formos pasaulyje... Garsai pasaulyje... Kvapai pasaulyje... Skoniai pasaulyje... Kūnu jaučiama pasaulyje... Proto objektai pasaulyje iš prigimties yra mieli, iš prigimties yra malonūs, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Akies sąmonė pasaulyje... Ausies sąmonė pasaulyje... Nosies sąmonė pasaulyje... Liežuvio sąmonė pasaulyje... Kūno sąmonė pasaulyje... Proto sąmonė pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Akies sąmonė pasaulyje... Ausies sąmonė pasaulyje... Nosies sąmonė pasaulyje... Liežuvio sąmonė pasaulyje... Kūno sąmonė pasaulyje... Proto sąmonė pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Akies sąlytis pasaulyje... Ausies sąlytis pasaulyje... Nosies sąlytis pasaulyje... Liežuvio sąlytis pasaulyje... Kūno sąlytis pasaulyje... Proto sąlytis pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Akies sąlytis pasaulyje... Ausies sąlytis pasaulyje... Nosies sąlytis pasaulyje... Liežuvio sąlytis pasaulyje... Kūno sąlytis pasaulyje... Proto sąlytis pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Dėl akies sąlyčio gimstantis jausmas pasaulyje... Dėl ausies sąlyčio gimstantis jausmas pasaulyje... Dėl nosies sąlyčio gimstantis jausmas pasaulyje... Dėl liežuvio sąlyčio gimstantis jausmas pasaulyje... Dėl kūno sąlyčio gimstantis jausmas pasaulyje... Dėl proto sąlyčio gimstantis jausmas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Dėl akies sąlyčio gimstantis jausmas pasaulyje... Dėl ausies sąlyčio gimstantis jausmas pasaulyje... Dėl nosies sąlyčio gimstantis jausmas pasaulyje... Dėl liežuvio sąlyčio gimstantis jausmas pasaulyje... Dėl kūno sąlyčio gimstantis jausmas pasaulyje... Dėl proto sąlyčio gimstantis jausmas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Formos suvokimas pasaulyje... Garso suvokimas pasaulyje... Kvapo suvokimas pasaulyje... Skonio suvokimas pasaulyje... Kūnu jaučiamo suvokimas pasaulyje... Proto objekto suvokimas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Formos suvokimas pasaulyje... Garso suvokimas pasaulyje... Kvapo suvokimas pasaulyje... Skonio suvokimas pasaulyje... Kūnu jaučiamo suvokimas pasaulyje... Proto objekto suvokimas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Čėtana formos atžvilgiu pasaulyje... Čėtana garso atžvilgiu pasaulyje... Čėtana kvapo atžvilgiu pasaulyje... Čėtana skonio atžvilgiu pasaulyje... Čėtana kūnu jaučiamo atžvilgiu pasaulyje... Čėtana proto objekto atžvilgiu pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Su forma susijusi čėtana pasaulyje... Su garsu susijusi čėtana pasaulyje... Su kvapu susijusi čėtana pasaulyje... Su skoniu susijusi čėtana pasaulyje... Su kūnu jaučiamu susijusi čėtana pasaulyje... Su proto objektu susijusi čėtana pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
 Formų troškimas pasaulyje... Garsų troškimas pasaulyje... Kvapų troškimas pasaulyje... Skonių troškimas pasaulyje... Kūnu jaučiamo troškimas pasaulyje... Proto objektų troškimas pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
 
-Mintis apie formą pasaulyje... Mintis apie garsą pasaulyje... Mintis apie kvapą pasaulyje... Mintis apie skonį pasaulyje... Mintis apie kūnu liečiamą pasaulyje... Mintis apie proto objektą pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis būdamas būna.
+Mintis apie formą pasaulyje... Mintis apie garsą pasaulyje... Mintis apie kvapą pasaulyje... Mintis apie skonį pasaulyje... Mintis apie kūnu liečiamą pasaulyje... Mintis apie proto objektą pasaulyje iš prigimties yra miela, iš prigimties yra maloni, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
-Galvojimas apie formą pasaulyje... Galvojimas apie garsą pasaulyje... Galvojimas apie kvapą pasaulyje... Galvojimas apie skonį pasaulyje... Galvojimas apie kūnu jaučiamą pasaulyje... Galvojimas apie proto objektą pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis būdamas būna. Tai, vienuoliai, vadinama kentėjimo priežasties tauriąja tiesa.
+Galvojimas apie formą pasaulyje... Galvojimas apie garsą pasaulyje... Galvojimas apie kvapą pasaulyje... Galvojimas apie skonį pasaulyje... Galvojimas apie kūnu jaučiamą pasaulyje... Galvojimas apie proto objektą pasaulyje iš prigimties yra mielas, iš prigimties yra malonus, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria. Tai, vienuoliai, vadinama kentėjimo priežasties tauriąja tiesa.
 
 ### Išnykimo tiesos išdėstymas
 
