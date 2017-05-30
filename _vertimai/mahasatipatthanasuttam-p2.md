@@ -121,7 +121,7 @@ Kentėjimo tiesos išdėstymas
 **Samudayasaccaniddeso**  
 Priežasties tiesos išdėstymas  
 
-**400. ‘‘Katamañca, bhikkhave,** Ir kas, vienuoliai, yra **dukkhasamudayaṃ [dukkhasamudayo (syā.)] ariyasaccaṃ?** kentėjimo priežasties taurioji tiesa? **Yāyaṃ taṇhā ponobbhavikā [ponobhavikā (sī. pī.)]** Tai yra tas troškimas, kuris veda į pakartotiną būtį, **nandīrāgasahagatā [nandirāgasahagatā (sī. syā. pī.)]** susijęs su džiugesiu ir geismu, **tatratatrābhinandinī,** siekiantis džiugesio tai šian, tai ten, **seyyathidaṃ –** tai yra **kāmataṇhā** juslinių malonumų troškimas, **bhavataṇhā** būties troškimas, **vibhavataṇhā.** nebūties troškimas.
+**400. ‘‘Katamañca, bhikkhave,** Ir kas, vienuoliai, yra **dukkhasamudayaṃ [dukkhasamudayo (syā.)] ariyasaccaṃ?** kentėjimo priežasties taurioji tiesa? **Yāyaṃ taṇhā ponobbhavikā [ponobhavikā (sī. pī.)]** Tai yra troškimas kuris vedantis į pakartotiną būtį, **nandīrāgasahagatā [nandirāgasahagatā (sī. syā. pī.)]** susijęs su džiugesiu ir geismu, **tatratatrābhinandinī,** siekiantis džiugesio tai šian, tai ten, **seyyathidaṃ –** tai yra **kāmataṇhā** juslinių malonumų troškimas, **bhavataṇhā** būties troškimas, **vibhavataṇhā.** nebūties troškimas.
 
 **‘‘Sā kho panesā, bhikkhave, taṇhā kattha** Bet kurgi, vienuoliai, šis troškimas **uppajjamānā uppajjati,** gimdamas gimsta, **kattha nivisamānā nivisati?** kur jis įsikurdamas įsikuria? **Yaṃ loke piyarūpaṃ sātarūpaṃ,** Tame kas pasaulyje iš prigimties yra miela, kas iš prigimties yra malonu, **etthesā taṇhā uppajjamānā uppajjati,** ten šis troškimas gimdamas gimsta, **ettha nivisamānā nivisati.** ten jis įsikurdamas įsikuria.
 
