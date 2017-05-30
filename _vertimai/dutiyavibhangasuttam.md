@@ -1,6 +1,6 @@
 ---
 layout: page
-title: 'Antras nagrinėjimas, (Dutiyavibhaṅgasuttaṃ, SN V.iv.I.10)'
+title: 'Antras nagrinėjimas (Dutiyavibhaṅgasuttaṃ, SN V.iv.I.10)'
 tags:
   - D
 index: D
