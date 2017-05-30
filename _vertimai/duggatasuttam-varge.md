@@ -20,7 +20,7 @@ Vieną kartą Palaimintasis buvo apsistojęs Savathėje. Tada gi Palaimintasis k
 
 Palaimintasis štai ką pasakė:
 
-—Vienuoliai, neįsivaizduojama [kada buvo] šios samsaros pradžia. Neįmanoma nurodyti praeityje būtybių, trikdomų nežinojimo, esančių troškimo saituose, lakstančių, klajojančių ratais pradžią. Vienuoliai, kai pamatysite kažką varge, kažką luošą, turėtumėte prieiti prie tokios išvados: "Aš gi taip pat per šį labai ilgą laiką esu tai patyręs." Dėl ko taip yra... <a href="../tinakatthasuttam-zole-ir-sakeles">{žr. SN II.IV.i.1}</a> ... ir to, vienuoliai, tikrai jau pakanka nusivilti visais sąlygotais dalykais, užgesinti potraukį [prie jų], išsilaisvinti [nuo jų].
+—Vienuoliai, neįsivaizduojama [kada buvo] šios samsaros pradžia. Neįmanoma nurodyti praeityje būtybių, trikdomų nežinojimo, esančių troškimo saituose, lakstančių, klajojančių ratais, pradžią. Vienuoliai, kai pamatysite kažką varge, kažką luošą, turėtumėte prieiti prie tokios išvados: „Aš gi taip pat per šį labai ilgą laiką esu tai patyręs.“ Dėl ko taip yra... <a href="../tinakatthasuttam-zole-ir-sakeles">{žr. SN II.IV.i.1}</a> ... ir to, vienuoliai, tikrai jau pakanka tam kad nusivilti visais sąlygotais dalykais, užgesinti potraukį [prie jų], išsilaisvinti [nuo jų].
 
 
 ## Duggatasuttaṃ (Varge, SN II.IV.ii.1)
