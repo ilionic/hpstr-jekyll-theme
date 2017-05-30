@@ -215,7 +215,7 @@ Vienuoliai, ir kas yra „trumpiau, penkios sankaupos prie kurių galima prisiri
 
 *Samudayasaccaniddeso*
 
-Ir kas, vienuoliai, yra kentėjimo priežasties taurioji tiesa? Tai yra tas troškimas, kuris veda į pakartotiną būtį, susijęs su džiugesiu ir geismu, siekiantis džiugesio tai šian, tai ten, tai yra juslinių malonumų troškimas, būties troškimas, nebūties troškimas.
+Ir kas, vienuoliai, yra kentėjimo priežasties taurioji tiesa? Tai yra troškimas vedantis į pakartotiną būtį, susijęs su džiugesiu ir geismu, siekiantis džiugesio tai šian, tai ten, tai yra juslinių malonumų troškimas, būties troškimas, nebūties troškimas.
 
 Bet kurgi, vienuoliai, šis troškimas gimdamas gimsta, kur jis įsikurdamas įsikuria? Tame kas pasaulyje iš prigimties yra miela, kas iš prigimties yra malonu, ten šis troškimas gimdamas gimsta, ten jis įsikurdamas įsikuria.
 
