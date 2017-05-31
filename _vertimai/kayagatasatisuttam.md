@@ -49,21 +49,21 @@ Ir vėlgi, vienuoliai, vienuolis atsisakęs malonumo ir skausmo, išnykus ankste
 
 Vienuoliai, bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, aprėpia bet kokias doras būsenas skatinančias išmintį. Panašiai, vienuoliai, kaip bet kas, protu persmelkęs didį vandenyną, aprėpia bet kokias upeles įtekančias į vandenyną; lygiai gi, vienuoliai, taip bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, aprėpia bet kokias doras būsenas skatinančias išmintį.
 
-Vienuoliai, bet ką, kas neišlavino, nepraktikavo dažnai atidumo kūnui, duoda Marai šansą, tampa Maros ramsčiu. Sakykime, žmogus sviestų sunkų akmens rutulį į drėgno molio krūvą. Vienuoliai, kaip jūs manote, ar tas sunkus akmens rutulys galėtų nugrimzti drėgno molio krūvoje?
+Vienuoliai, bet kas neišlavinęs, nepraktikavęs dažnai atidumo kūnui, duoda Marai šansą, tampa Maros ramsčiu. Sakykime, žmogus sviestų sunkų akmens rutulį į drėgno molio krūvą. Vienuoliai, kaip jūs manote, ar tas sunkus akmens rutulys galėtų nugrimzti drėgno molio krūvoje?
 
 －Taip, Gerbiamasis.
 
-－Lygiai gi, vienuoliai, taip, bet ką, kas neišlavino, dažnai nepraktikavo atidumo kūnui, Mara gali nugramzdinti, Mara gali rasti jame paramą. Sakykime, būtų sausa, išdžiūvusi malka [išdžiūvusi išmesta į vandens telkinio krantą, į sausumą]. Ateitų žmogus pasiėmęs geriausios kokybės lazdelę ugniai įžiebti [galvodamas]: „Įžiebsiu ugnį, iššauksiu liepsną.“  Vienuoliai, kaip jūs manote, ar tas žmogus tą sausą, išdžiūvusią malką trindamas geriausios kokybės lazdele įžiebtų ugnį, iššauktų liepsną?
+－Lygiai gi, vienuoliai, taip, bet kas neišlavinęs, nepraktikavęs dažnai atidumo kūnui, duoda Marai šansą, tampa Maros ramsčiu. Sakykime, būtų sausa, išdžiūvusi malka [išdžiūvusi išmesta į vandens telkinio krantą, į sausumą]. Ateitų žmogus pasiėmęs geriausios kokybės lazdelę ugniai įžiebti [galvodamas]: „Įžiebsiu ugnį, iššauksiu liepsną.“  Vienuoliai, kaip jūs manote, ar tas žmogus tą sausą, išdžiūvusią malką trindamas geriausios kokybės lazdele įžiebtų ugnį, iššauktų liepsną?
 
 －Taip, Gerbiamasis.
 
-－Lygiai gi, vienuoliai, taip bet ką, kas neišlavino, dažnai nepraktikavo atidumo kūnui, Mara gali nugramzdinti, Mara gali rasti jame paramą. Sakykime, ant laikiklio stovėtų tuščias, dykas puodas vandeniui ir ateitų žmogus nešinas vandeniu. Vienuoliai, kaip jūs manote, ar galėtų tas žmogus vandenį supilti [į puodą]?
+－Lygiai gi, vienuoliai, taip bet kas neišlavinęs, nepraktikavęs dažnai atidumo kūnui, duoda Marai šansą, tampa Maros ramsčiu. Sakykime, ant laikiklio stovėtų tuščias, dykas puodas vandeniui ir ateitų žmogus nešinas vandeniu. Vienuoliai, kaip jūs manote, ar galėtų tas žmogus vandenį supilti [į puodą]?
 
 －Taip, Gerbiamasis.
 
-－Lygiai gi, vienuoliai, taip bet ką, kas neišlavino, dažnai nepraktikavo atidumo kūnui, Mara gali nugramzdinti, Mara gali rasti jame paramą.
+－Lygiai gi, vienuoliai, taip bet kas neišlavinęs, nepraktikavęs dažnai atidumo kūnui, duoda Marai šansą, tampa Maros ramsčiu. 
 
-Vienuoliai, bet ką, kas išlavino, dažnai praktikavo atidumą kūnui, Mara negali nugramzdinti, Mara negali rasti jame paramos. Sakykime, žmogus sviestų lengvą siūlų kamuolį į kieto medžio stulpą, laikantį skersinį kartį. Vienuoliai, kaip jūs manote, ar tas žmogus tą lengvą siūlų kamuolį galėtų nugramzdinti kieto medžio stulpe, laikančiame skersinį kartį?
+Vienuoliai, bet kas išlavinęs, praktikavęs dažnai atidumą kūnui, neduoda Marai šanso, netampa Maros ramsčiu. Sakykime, žmogus sviestų lengvą siūlų kamuolį į kieto medžio stulpą laikantį skersinį kartį. Vienuoliai, kaip jūs manote, ar tas žmogus tas lengvas siūlų kamuolį galėtų nugramzdinti kieto medžio stulpe, laikančiame skersinį kartį?
 
 －Tai gi ne, Gerbiamasis.
 
