@@ -109,7 +109,7 @@ Išgryninta antžmogiška dieviška akimi mato, kaip mirusios būtybės atgimsta
 
 Sunaikinęs intakus, pats tiesiogine patirtimi pažinęs, be intakų čia ir dabar įžengia į proto išsilavinimą, išsilavinimą išmintimi ir būna jame.
 
-Vienuoliai, kai atidumas kūnui yra taikytas, išlavintas, dažnai praktikuotas, padarytas transportu, padarytas pagrindu, patiriamas, padaugintas, gerai atliekamas, yra lauktina ši dešimtalypė nauda.
+Vienuoliai, kai atidumas kūnui yra taikomas, lavinamas, dažnai praktikuojamas, padarytas transportu, padarytas pagrindu, įkūnytas, įtvirtintas, yra gerai atliekamas, yra lauktina ši dešimtalypė nauda.
 
 Tai pasakė Palaimintasis. Pamaloninti tie vienuoliai džiaugėsi Palaimintojo kalba.
 
