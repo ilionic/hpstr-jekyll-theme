@@ -53,7 +53,7 @@ Vienuoliai, bet ką, kas neišlavino, nepraktikavo dažnai atidumo kūnui, Mara 
 
 －Taip, Gerbiamasis.
 
-－Lygiai gi, vienuoliai, taip, bet ką, kas neišlavino, dažnai nepraktikavo atidumo kūnui, Mara gali nugramzdinti, Mara gali rasti jame paramą. Sakykime, būtų sausa, išdžiūvusi malka [išdžiūvusi išmesta į vandens telkinio krantą, į sausumą]. Ateitų žmogus pasiėmęs geriausios kokybės lazdelę ugniai įžiebti [galvodamas]: "Įžiebsiu ugnį, iššauksiu liepsną". Vienuoliai, kaip jūs manote, ar tas žmogus tą sausą, išdžiūvusią malką trindamas geriausios kokybės lazdele įžiebtų ugnį, iššauktų liepsną?
+－Lygiai gi, vienuoliai, taip, bet ką, kas neišlavino, dažnai nepraktikavo atidumo kūnui, Mara gali nugramzdinti, Mara gali rasti jame paramą. Sakykime, būtų sausa, išdžiūvusi malka [išdžiūvusi išmesta į vandens telkinio krantą, į sausumą]. Ateitų žmogus pasiėmęs geriausios kokybės lazdelę ugniai įžiebti [galvodamas]: „Įžiebsiu ugnį, iššauksiu liepsną.“  Vienuoliai, kaip jūs manote, ar tas žmogus tą sausą, išdžiūvusią malką trindamas geriausios kokybės lazdele įžiebtų ugnį, iššauktų liepsną?
 
 －Taip, Gerbiamasis.
 
@@ -67,7 +67,7 @@ Vienuoliai, bet ką, kas išlavino, dažnai praktikavo atidumą kūnui, Mara neg
 
 －Tai gi ne, Gerbiamasis.
 
-－Lygiai gi, vienuoliai, taip, bet ką, kas išlavino, dažnai praktikavo atidumą kūnui, Mara negali nugramzdinti, Mara negali rasti jame paramos. Sakykime, būtų drėgna malka su syvais [su syvais išmesta į vandens telkinio krantą, į sausumą]. Ateitų žmogus pasiėmęs geriausios kokybės lazdelę ugniai įžiebti [galvodamas]: "Įžiebsiu ugnį, iššauksiu liepsną". Vienuoliai, kaip jūs manote, ar tas žmogus tą drėgną malką su syvais trindamas paimta geriausios kokybės lazdele įžiebtų ugnį, iššauktų liepsną?
+－Lygiai gi, vienuoliai, taip, bet ką, kas išlavino, dažnai praktikavo atidumą kūnui, Mara negali nugramzdinti, Mara negali rasti jame paramos. Sakykime, būtų drėgna malka su syvais [su syvais išmesta į vandens telkinio krantą, į sausumą]. Ateitų žmogus pasiėmęs geriausios kokybės lazdelę ugniai įžiebti [galvodamas]: „Įžiebsiu ugnį, iššauksiu liepsną“. Vienuoliai, kaip jūs manote, ar tas žmogus tą drėgną malką su syvais trindamas paimta geriausios kokybės lazdele įžiebtų ugnį, iššauktų liepsną?
 
 －Tai gi ne, Gerbiamasis.
 
