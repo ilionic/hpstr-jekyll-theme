@@ -49,7 +49,7 @@ Ir vėlgi, vienuoliai, vienuolis atsisakęs malonumo ir skausmo, išnykus ankste
 
 Vienuoliai, bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, aprėpia bet kokias doras būsenas skatinančias išmintį. Panašiai, vienuoliai, kaip bet kas, protu persmelkęs didį vandenyną, aprėpia bet kokias upeles įtekančias į vandenyną; lygiai gi, vienuoliai, taip bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, aprėpia bet kokias doras būsenas skatinančias išmintį.
 
-Vienuoliai, bet ką, kas neišlavino, nepraktikavo dažnai atidumo kūnui, Mara gali nugramzdinti, Mara gali rasti jame paramą. Sakykime, žmogus sviestų sunkų akmens rutulį į drėgno molio krūvą. Vienuoliai, kaip jūs manote, ar tą sunkų akmens rutulį galėtų nugramzdinti drėgno molio krūva?
+Vienuoliai, bet ką, kas neišlavino, nepraktikavo dažnai atidumo kūnui, duoda Marai šansą, tampa Maros ramsčiu. Sakykime, žmogus sviestų sunkų akmens rutulį į drėgno molio krūvą. Vienuoliai, kaip jūs manote, ar tas sunkus akmens rutulys galėtų nugrimzti drėgno molio krūvoje?
 
 －Taip, Gerbiamasis.
 
