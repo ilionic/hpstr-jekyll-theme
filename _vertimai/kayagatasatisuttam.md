@@ -81,11 +81,11 @@ Vienuoliai, bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, nukreipda
 
 －Taip, Gerbiamasis.
 
-－Lygiai gi taip, bet kas, kas išlavino, dažnai praktikavo atidumą kūnui, nukreipęs protą bet kokių tiesiogiai pažintinų dalykų link tam, kad juos tiesiogiai pažintų, tam esant pagrindui, tampa jų liudytoju. Sakykime, lygiame žemės plote būtų keturi iki viršaus, iki kraštų pripildyti vandens tvenkiniai, atitverti užtvankomis. Jei stiprus žmogus kaip nors užtvanką atidarytų, ar vanduo ištekėtų?
+－Lygiai gi taip, bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, nukreipdamas protą bet kokių tiesiogiai pažintinų dalykų link, tam kad juos tiesiogiai pažintų, kai tam yra pagrindas, tampa jų liudytoju. Sakykime, lygiame žemės plote būtų keturi iki viršaus, iki kraštų pripildyti vandens tvenkiniai, atitverti užtvankomis. Jei stiprus žmogus kaip nors užtvanką atidarytų, ar vanduo ištekėtų?
 
 －Taip, Gerbiamasis.
 
-－Lygiai gi taip bet kas, kas išlavino, dažnai praktikavo atidumą kūnui, nukreipęs protą bet kokių tiesiogiai pažintinų dalykų link tam, kad juos tiesiogiai pažintų, tam esant pagrindui, tampa jų liudytoju. Sakykime, lygioje žemėje, sankryžoje stovėtų vežimas pakinkytas geros veislės arkliu [ir su šalia] paguldytu rimbu. Ant jo užsilipęs įgudęs arklininkas, arklių tramdytojas, pasiėmęs vėžes į kairę ranką, o rimbą į dešinę ranką, pajudėtų kai panorėjęs, kur panorėjęs, ir į priekį, ir atgal. Lygiai gi taip bet kas, kas išlavino, dažnai praktikavo atidumą kūnui nukreipęs protą bet kokių tiesiogiai pažintinų dalykų link tam, kad juos tiesiogiai pažintų, tam esant pagrindui, tampa jų liudytoju.
+－Lygiai gi taip bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, nukreipdamas protą bet kokių tiesiogiai pažintinų dalykų link, tam kad juos tiesiogiai pažintų, kai tam yra pagrindas, tampa jų liudytoju. Sakykime, lygioje žemėje, sankryžoje stovėtų vežimas pakinkytas geros veislės arkliu [ir su šalia] paguldytu rimbu. Ant jo užsilipęs įgudęs arklininkas, arklių tramdytojas, pasiėmęs vėžes į kairę ranką, o rimbą į dešinę ranką, pajudėtų kai panorėjęs, kur panorėjęs, ir į priekį, ir atgal. Lygiai gi taip bet kas išlavinęs, dažnai praktikavęs atidumą kūnui, nukreipdamas protą bet kokių tiesiogiai pažintinų dalykų link, tam kad juos tiesiogiai pažintų, kai tam yra pagrindas, tampa jų liudytoju.
 
 Vienuoliai, kai atidumas kūnui yra taikytas, išlavintas, dažnai praktikuotas, padarytas transportu, padarytas pagrindu, patiriamas, padaugintas, gerai atliekamas, yra lauktina dešimtalypė nauda.
 
