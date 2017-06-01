@@ -1,6 +1,6 @@
 ---
 layout: page
-title: 'Palyginimas su putų gumulu (Pheṇapiṇḍūpamasuttaṃ, SN II.I.x.3)'
+title: 'Palyginimas su putų gumulu (Pheṇapiṇḍūpamasuttaṃ, SN III.I.x.3)'
 tags:
   - P
 index: P
@@ -39,9 +39,9 @@ Kai gyvybė, šiluma ir sąmonė palieka šį kūną,
 Jis guli išmestas, tapęs kitų valgiu, bevalis.
 Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;
 Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,
-Energingas vienuolis taip turėtų žiūrėti į sankaupas,
-Ir dieną, ir naktį - aiškiai suprantantis, atmenantis,
-Jis turėtų palikti visus pančius, padaryti sau prieglobstį;
+Taip turėtų žiūrėti į sankaupas vienuolis energingas,
+Ar dieną, ar naktį - aiškiai suprantantis, atmenantis.
+Jis turėtų palikti visus pančius, padaryti save savo prieglobsčiu;
 Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.“
 
 ### Pheṇapiṇḍūpamasuttaṃ (Palyginimas su putų gumulu, SN II.I.x.3)
@@ -85,10 +85,10 @@ Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;
 **Vadhako esa akkhāto, sāro ettha na vijjati.** 
 Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,
 **"Evaṃ khandhe avekkheyya, bhikkhu āraddhavīriyo;** 
-Energingas vienuolis taip turėtų žiūrėti į sankaupas,
+Taip turėtų žiūrėti į sankaupas vienuolis energingas,
 **Divā vā yadi vā rattiṃ, sampajāno paṭissato.** 
-Ir dieną, ir naktį - aiškiai suprantantis, atmindamas,
+Aiškiai suprantantis ir atidus ar dieną, ar naktį.
 **"Jaheyya sabbasaṃyogaṃ, kareyya saraṇattano;** 
-Jis turėtų palikti visus pančius, padaryti sau prieglobstį;
+Jis turėtų palikti visus pančius, padaryti save savo prieglobsčiu;
 **Careyyādittasīsova, patthayaṃ accutaṃ pada"nti.**
 Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.
