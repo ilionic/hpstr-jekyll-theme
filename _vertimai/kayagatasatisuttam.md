@@ -101,7 +101,7 @@ Jis pažįsta įvairius antžmogiškus gebėjimus. Iš vieno pasidaro daugeliu, 
 
 Išgrynintu antžmogišku dieviškos ausies elementu girdi tiek dėvų, tiek ir žmonių garsus, ir arti, ir toli.
 
-Kitų būtybių, kitų asmenų protą apgaubęs savuoju pažįsta: protą su geiduliu jis žino kaip "protas su geiduliu", protą be geidulio... protą su bjaurėjimusi... protą be bjaurėjimosi... protą su nežinojimu... protą be nežinojimo... susitraukusi protą... nesusitraukusi protą... išsiplėtusi protą... neišsiplėtusi protą... pralenkiamą protą... nepralenkiamą protą... sutelktą protą... nesutelktą protą... išsilaisvinusį protą... neišsilaisvinusį protą jis žino kaip "neišsilaisvinęs protas".
+Kitų būtybių, kitų asmenų protą apgaubęs savuoju pažįsta: protą su geiduliu jis žino kaip „protas su geiduliu“, protą be geidulio... protą su bjaurėjimusi... protą be bjaurėjimosi... protą su klydimu... protą be klydimo... susitraukusi protą... išsiblaškusį protą... didumą pasiekusį protą... didumos nepasiekusį protą... pralenkiamą protą... nepralenkiamą protą... sutelktą protą... nesutelktą protą... išsilaisvinusį protą... neišsilaisvinusį protą jis žino kaip "neišsilaisvinęs protas".
 
 Jis prisimena daugelį praeitų gyvenimų, t.y. vieną gimimą, du gimimus... <a href="../samannaphala-p1">{žr. DN 2.29}</a> taip jis išsamiai, su buitiškomis detalėmis prisimena daugelį praeitų gyvenimų.
 
