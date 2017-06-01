@@ -19,7 +19,9 @@ Taip aš girdėjau: vieną kartą Palaimintasis buvo apsistojęs Savathėje Dže
 
 Palaimintasis štai ką pasakė:
 
-－Vienuoliai, mokysiu jus sąlygoto atsiradimo, klausykite, sutelkite visą dėmesį, kalbėsiu. －Taip, gerbiamasis! － atsakė Palaimintajam vienuoliai.
+－Vienuoliai, mokysiu jus sąlygoto atsiradimo, klausykite, sutelkite visą dėmesį, kalbėsiu. 
+
+－Taip, gerbiamasis! － atsakė Palaimintajam vienuoliai.
 
 Palaimintasis štai ką pasakė:
 
