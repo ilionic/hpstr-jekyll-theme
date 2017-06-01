@@ -44,7 +44,7 @@ Ar dieną, ar naktį - aiškiai suprantantis, atmenantis.
 Jis turėtų palikti visus pančius, padaryti save savo prieglobsčiu;
 Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.“
 
-### Pheṇapiṇḍūpamasuttaṃ (Palyginimas su putų gumulu, SN II.I.x.3)
+### Pheṇapiṇḍūpamasuttaṃ (Palyginimas su putų gumulu, SN III.I.x.3)
 
 **95. Ekaṃ samayaṃ bhagavā** Vieną kartą Palaimintasis **ayujjhāyaṃ [ayojjhāyaṃ (sī. pī.)] viharati gaṅgāya nadiyā tīre.** buvo apsistojęs Ajudžhajoje, Gangos upės pakrantėje. **Tatra kho bhagavā bhikkhū āmantesi –** Tada gi Palaimintasis kreipėsi į vienuolius:
 
