@@ -13,16 +13,16 @@ published: true
 ---
 1.Taip aš girdėjau: vieną kartą Palaimintasis buvo apsistojęs Savathėje, Džetos girioje, Anathapindikos vienuolyne. Tada gi gilią naktį vienas dėva, neprilygstama šviesa nušvietęs visą Džetos girią, atėjo pas Palaimintąjį. Atėjęs pasveikino jį ir atsistojo iš šono. Iš šono stovėdamas, tas dėva ištarė Palaimintajam posmą:
 
-2. Mąsto apie palaimą daugybė dėvų ir žmonių norėdami klestėjimo,
+2. Mąsto apie palaimą daugybė dėvų ir žmonių norėdami klestėjimo, 
 Prašau, pasakyki, kas sudaro didžiausią palaimą!
 
 3. Nebendravimas su kvailiais, bendravimas su išminčiais,
-Ir garbinimas tų, kas nusipelno garbės, – tai yra didžiausia palaima.
+Ir garbinimas tų, kas nusipelno garbės – tai yra didžiausia palaima.
 
 4. Tinkama gyvenamoji vieta, anksčiau padaryti dorovingi poelgiai
-Ir teisingos krypties laikymasis – tai yra didžiausia palaima.
+Ir teisinga linkme judėjimas – tai yra didžiausia palaima.
 
-5. Daug žinojimo ir įgūdžių, drausmės laikymasis
+5. Daug žinių ir įgūdžių, drausmės laikymasis
 Ir gerų žodžių sakymas – tai yra didžiausia palaima.
 
 6. Rūpinimasis motina ir tėvu, žmonos ir vaikų globojimas,
@@ -31,7 +31,7 @@ Ir taikūs užsiėmimai – tai yra didžiausia palaima.
 7. Aukojimas ir teisingas gyvenimo būdas, rūpinimasis giminaičiais
 Ir nesmerktini poelgiai – tai yra didžiausia palaima.
 
-8. Vengimas ir susilaikymas nuo blogio, svaigalų nevartojimas
+8. Blogio nemėgimas, susilaikymas nuo jo, svaigalų nevartojimas
 Ir stropumas Dharmoje – tai yra didžiausia palaima.
 
 9. Pagarbumas ir nuolankumas, pasitenkinimas, dėkingumas
@@ -43,7 +43,7 @@ Ir savalaikis Dharmos aptarimas – tai yra didžiausia palaima.
 11. Savitvarda ir skaistus gyvenimas, tauriųjų tiesų matymas
 Ir Nirvanos pažinimas – tai yra didžiausia palaima.
 
-12. Paliestas likimo staigmenų, jo protas nesuvirpsi,
+12. Paliestas likimo staigmenų, jo protas nesuvirpa,
 [Būti] be liūdesio, nesuteptu ir saugiu – tai yra didžiausia palaima.
 
 13. Visi, kas taip gyvena, nenugalimi yra visur,
@@ -57,12 +57,12 @@ Jie visur yra laimingi, jiems tai yra didžiausia palaima.
 **Ākaṅkhamānā sotthānaṃ, brūhi maṅgalamuttamaṃ’’.** norėdami klestėjimo, prašau, pasakyki, kas sudaro didžiausią palaimą!
 
 **3. ‘‘Asevanā ca bālānaṃ, paṇḍitānañca sevanā;** Nebendravimas su kvailiais, bendravimas su išminčiais
-**Pūjā ca pūjaneyyānaṃ [pūjanīyānaṃ (sī. syā. kaṃ. pi.)], etaṃ maṅgalamuttamaṃ.** Ir garbinimas tų, kas nusipelno garbės, – tai yra didžiausia palaima.
+**Pūjā ca pūjaneyyānaṃ [pūjanīyānaṃ (sī. syā. kaṃ. pi.)], etaṃ maṅgalamuttamaṃ.** Ir garbinimas tų, kas nusipelno garbės – tai yra didžiausia palaima.
 
 **4. ‘‘Patirūpadesavāso ca, pubbe ca katapuññatā;** Tinkama gyvenamoji vieta, anksčiau padaryti dorovingi poelgiai
-**Attasammāpaṇidhi [atthasammāpaṇīdhī (katthaci)] ca, etaṃ maṅgalamuttamaṃ.** Ir teisingos krypties laikymasis tai yra didžiausia palaima.
+**Attasammāpaṇidhi [atthasammāpaṇīdhī (katthaci)] ca, etaṃ maṅgalamuttamaṃ.** Ir teisinga linkme judėjimas - tai yra didžiausia palaima.
 
-**5. ‘‘Bāhusaccañca sippañca, vinayo ca susikkhito;** Daug žinojimo ir įgūdžių, drausmės laikymasis
+**5. ‘‘Bāhusaccañca sippañca, vinayo ca susikkhito;** Daug žinių ir įgūdžių, drausmės laikymasis
 **Subhāsitā ca yā vācā, etaṃ maṅgalamuttamaṃ.** Ir gerų žodžių sakymas – tai yra didžiausia palaima.
 
 **6. ‘‘Mātāpitu upaṭṭhānaṃ, puttadārassa saṅgaho;** Rūpinimasis motina ir tėvu, žmonos ir vaikų globojimas,
@@ -71,7 +71,7 @@ Jie visur yra laimingi, jiems tai yra didžiausia palaima.
 **7. ‘‘Dānañca dhammacariyā ca, ñātakānañca saṅgaho;** Aukojimas ir teisingas gyvenimo būdas, rūpinimasis giminaičiais
 **Anavajjāni kammāni, etaṃ maṅgalamuttamaṃ.** Ir nesmerktini poelgiai – tai yra didžiausia palaima.
 
-**8. ‘‘Āratī viratī pāpā, majjapānā ca saṃyamo;** Vengimas ir susilaikymas nuo blogio, svaigalų nevartojimas
+**8. ‘‘Āratī viratī pāpā, majjapānā ca saṃyamo;** Blogio nemėgimas, susilaikymas nuo jo, svaigalų nevartojimas
 **Appamādo ca dhammesu, etaṃ maṅgalamuttamaṃ.** Ir stropumas Dharmoje – tai yra didžiausia palaima.
 
 **9. ‘‘Gāravo ca nivāto ca, santuṭṭhi ca kataññutā;** Pagarbumas ir nuolankumas, pasitenkinimas, dėkingumas
@@ -83,7 +83,7 @@ Jie visur yra laimingi, jiems tai yra didžiausia palaima.
 **11. ‘‘Tapo ca brahmacariyañca, ariyasaccāna dassanaṃ;** Savitvarda ir skaistus gyvenimas, Tauriųjų tiesų matymas
 **Nibbānasacchikiriyā ca, etaṃ maṅgalamuttamaṃ.** Ir Nirvanos pažinimas – tai yra didžiausia palaima.
 
-**12. ‘‘Phuṭṭhassa lokadhammehi, cittaṃ yassa na kampati;** Paliestas likimo staigmenų, jo protas nesuvirpsi,
+**12. ‘‘Phuṭṭhassa lokadhammehi, cittaṃ yassa na kampati;** Paliestas likimo staigmenų, jo protas nesuvirpa,
 **Asokaṃ virajaṃ khemaṃ, etaṃ maṅgalamuttamaṃ.** [Būti] be liūdesio, nesuteptu ir saugiu – tai yra didžiausia palaima.
 
 **13. ‘‘Etādisāni katvāna, sabbatthamaparājitā;** Visi, kas taip gyvena, nenugalimi yra visur,
