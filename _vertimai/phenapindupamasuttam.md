@@ -20,29 +20,29 @@ Sakykime, vienuoliai, rudenį lytų lietus dideliais lašais, ir ant vandens ats
 
 Sakykime, vienuoliai, paskutinį vasaros mėnesį vidury dienos virpėtų miražas. Turintis akis žmogus jį apžiūrėtų, apmąstytų, visapusiškai ištyrinėtų. Jam apžiūrėjus, apmąsčius, visapusiškai ištyrinėjus, tas pasirodytų esąs tuščias, dykas... ar gi būtų, vienuoliai, miraže vidinis pagrindas?! Lygiai gi taip vienuolis apžiūri, apmąsto, visapusiškai ištyrinėja bet kurį suvokimą...
 
-Sakykime, vienuoliai, žmogus, norintis, siekiantis rasti, ieškantis medžio šerdies, klajodamas pasiėmęs aštrų kirvį, įžengtų į mišką. Ten jis pamatytų didelį banano augalą, tiesų, jauną, be žiedo stiebo. Jis tą prie šaknies nupjautų, nupjovęs prie šaknies, nupjautų viršūnę, nupjovęs viršūnę, perskirtų sluoksnius. Perskyrius sluoksnius, jis ir iki minkštos medienos neprieitų, kur jau ten iki šerdies?! Turintis akis žmogus jį apžiūrėtų, apmąstytų, visapusiškai ištyrinėtų. Jam apžiūrėjus, apmąsčius, visapusiškai ištyrinėjus, tas pasirodytų esąs tuščias, dykas, neturįs vidinio pagrindo. Ar gi būtų, vienuoliai, banano augale vidinis pagrindas?! Lygiai gi taip vienuolis apžiūri, apmąsto, visapusiškai ištyrinėja bet kurius proto darinius...
+Sakykime, vienuoliai, žmogus, norintis, siekiantis rasti, ieškantis medžio šerdies, klajotų pasiėmęs aštrų kirvį ir įžengtų į mišką. Ten jis pamatytų didelį banano augalą, tiesų, jauną, be žiedo stiebo. Jis tą prie šaknies nupjautų, nupjovęs prie šaknies, nupjautų viršūnę, nupjovęs viršūnę, perskirtų sluoksnius. Perskyręs sluoksnius, jis ir iki minkštos medienos neprieitų, kur jau ten iki šerdies?! Turintis akis žmogus jį apžiūrėtų, apmąstytų, visapusiškai ištyrinėtų. Jam apžiūrėjus, apmąsčius, visapusiškai ištyrinėjus, tas pasirodytų esąs tuščias, dykas, neturįs vidinio pagrindo. Ar gi būtų, vienuoliai, banano augale vidinis pagrindas?! Lygiai gi taip vienuolis apžiūri, apmąsto, visapusiškai ištyrinėja bet kurius proto darinius...
 
-Sakykime, vienuoliai, iliuzionistas ar iliuzionisto padėjėjas rodytų magijos šou sankryžoje. Turintis akis žmogus jį apžiūrėtų, apmąstytų, visapusiškai ištyrinėtų. Jam apžiūrėjus, apmąsčius, visapusiškai ištyrinėjus, tas pasirodytų esąs tuščias, dykas, neturįs vidinio pagrindo. Ar gi būtų, vienuoliai, magijos šou vidinis pagrindas?! Lygiai gi taip vienuolis apžiūri, apmąsto, visapusiškai ištyrinėja bet kurią sąmonę: ar tai praeities, ar dabartinę, ar ateities, ar vidinę, ar išorinę, ar akivaizdžią, ar subtilią, ar žemesnę, ar viršesnę, ar tolimą, ar artimą. Jam apžiūrėjus, apmąsčius, visapusiškai ištyrinėjus, ta pasirodytų esą tuščia, dyka, neturintį vidinio pagrindo. Ar gi būtų, vienuoliai, sąmonėje vidinis pagrindas?!
+Sakykime, vienuoliai, iliuzionistas ar iliuzionisto padėjėjas rodytų magijos šou sankryžoje. Turintis akis žmogus jį apžiūrėtų, apmąstytų, visapusiškai ištyrinėtų. Jam apžiūrėjus, apmąsčius, visapusiškai ištyrinėjus, tas pasirodytų esąs tuščias, dykas, neturįs vidinio pagrindo. Ar gi būtų, vienuoliai, magijos šou vidinis pagrindas?! Lygiai gi taip vienuolis apžiūri, apmąsto, visapusiškai ištyrinėja bet kurią sąmonę: ar praeities, ar dabarties, ar ateities, ar vidinę, ar išorinę, ar akivaizdžią, ar subtilią, ar žemesnę, ar viršesnę, ar tolimą, ar artimą. Jam apžiūrėjus, apmąsčius, visapusiškai ištyrinėjus, ta pasirodytų esą tuščia, dyka, neturintį vidinio pagrindo. Ar gi būtų, vienuoliai, sąmonėje vidinis pagrindas?!
 
-Tai pamatęs, vienuoliai, apsišvietęs tauriųjų mokinys ir materija nusivilia, ir jausmu..., ir nuo suvokimu..., ir nuo proto dariniais..., nusivilia ir sąmone. Nusivylus užgęsta potraukis; užgesus potraukiui, išsilaisvinama. Išsilaisvinus, ateina supratimas: "Išsilaisvinęs. Panaikintas gimimas, nugyventas šventas gyvenimas, padaryta tai, kas turi būti padaryta, nebebus daugiau šio būvio"."
+Tai pamatęs, vienuoliai, apsišvietęs tauriųjų mokinys ir materija nusivilia, ir jausmu..., ir suvokimu..., ir proto dariniais..., nusivilia ir sąmone. Nusivylus užgęsta potraukis; užgesus potraukiui, išsilaisvinama. „Išsilaisvinus, ateina supratimas: Išsilaisvinęs. Panaikintas gimimas, nugyventas šventas gyvenimas, padaryta tai, kas turi būti padaryta, nebebus daugiau šio būvio.“
 
 Taip pasakė Palaimintasis. Taip pasakęs, Gerai Žengęs, Mokytojas toliau pasakė štai ką:
 
-Materija lyg putų gumulas, jausmas lyg burbulas;
+„Materija lyg putų gumulas, jausmas lyg burbulas;
 Suvokimas lyg miražas, proto dariniai lyg banano augalas;
 O sąmonė lyg magijos šou - taip mokyta Saulės Gentainio.
 Kaip jis apie tai bemąstytų, visapusiškai tai betyrinėtų,
 Kai apžiūri iš esmės, mato: tai yra tuščia ir dyka.
 Ir šio kūno atžvilgiu Giliai Išmintingo mokyta:
-"Netekusi trijų reiškinių materija matoma išmesta:
+Netekusią trijų reiškinių materiją matome išmesta:
 Kai gyvybė, šiluma ir sąmonė palieka šį kūną,
 Jis guli išmestas, tapęs kitų valgiu, bevalis.
 Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;
 Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,
-Energingas vienuolis taip turėtų žiūrėti į komponentus,
+Energingas vienuolis taip turėtų žiūrėti į sankaupas,
 Ir dieną, ir naktį - aiškiai suprantantis, atmenantis,
 Jis turėtų palikti visus pančius, padaryti sau prieglobstį;
-Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.
+Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.“
 
 ### Pheṇapiṇḍūpamasuttaṃ (Palyginimas su putų gumulu, SN II.I.x.3)
 
