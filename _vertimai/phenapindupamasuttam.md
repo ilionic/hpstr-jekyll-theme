@@ -75,7 +75,7 @@ Kai apžiūri iš esmės, mato tai yra tuščia ir dyka.
 **"Imañca [143] kāyaṃ ārabbha, bhūripaññena desitaṃ;** 
 Ir šio kūno atžvilgiu Giliai Išmintingo mokyta:
 **Pahānaṃ tiṇṇaṃ dhammānaṃ, rūpaṃ passatha [passetha (sī.)] chaḍḍitaṃ.** 
-"Netekusi trijų reiškinių materija matoma išmesta.
+Netekusią trijų reiškinių materiją matome išmesta.
 **"Āyu usmā ca viññāṇaṃ, yadā kāyaṃ jahantimaṃ;** 
 Kai gyvybė, šiluma ir sąmonė palieka šį kūną,
 **Apaviddho [apaviṭṭho (syā. kaṃ.)] tadā seti, parabhattaṃ acetanaṃ.** 
@@ -85,7 +85,7 @@ Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;
 **Vadhako esa akkhāto, sāro ettha na vijjati.** 
 Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,
 **"Evaṃ khandhe avekkheyya, bhikkhu āraddhavīriyo;** 
-Energingas vienuolis taip turėtų žiūrėti į komponentus,
+Energingas vienuolis taip turėtų žiūrėti į sankaupas,
 **Divā vā yadi vā rattiṃ, sampajāno paṭissato.** 
 Ir dieną, ir naktį - aiškiai suprantantis, atmindamas,
 **"Jaheyya sabbasaṃyogaṃ, kareyya saraṇattano;** 
