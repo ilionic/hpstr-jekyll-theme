@@ -55,13 +55,13 @@ Rahula, lavink atidumo kvėpavimui meditaciją. Rahula, išlavinta, dažnai prak
 
 Ilgai įkvėpdamas jis žino „įkvepiu ilgai“, ilgai iškvėpdamas žino „iškvepiu ilgai“; trumpai įkvėpdamas žino „įkvepiu trumpai“, trumpai iškvėpdamas žino „iškvepiu trumpai“; jis mokosi: „įkvėpsiu patirdamas visą kūną“,- mokosi: „iškvėpsiu patirdamas visą kūną“;- mokosi: „įkvėpsiu nuramindamas kūno darinius“,- mokosi: „iškvėpsiu nuramindamas kūno darinius“.
 
-Jis mokosi: "įkvėpsiu patirdamas gėrėjimąsi", jis mokosi: "iškvėpsiu patirdamas gėrėjimąsi"; jis mokosi: "įkvėpsiu patirdamas laimę", jis mokosi: "iškvėpsiu patirdamas laimę"; jis mokosi: "įkvėpsiu patirdamas proto darinius" jis mokosi: "iškvėpsiu patirdamas proto darinius"; jis mokosi: "įkvėpsiu nuramindamas proto darinius", jis mokosi: "iškvėpsiu nuramindamas proto darinius".
+Jis mokosi: „įkvėpsiu patirdamas gėrėjimąsi“, jis mokosi: „iškvėpsiu patirdamas gėrėjimąsi“; jis mokosi: „įkvėpsiu patirdamas laimę“, jis mokosi: „iškvėpsiu patirdamas laimę“; jis mokosi: „įkvėpsiu patirdamas proto darinius“ jis mokosi: „iškvėpsiu patirdamas proto darinius“; jis mokosi: „įkvėpsiu nuramindamas proto darinius“, jis mokosi: „iškvėpsiu nuramindamas proto darinius“.
 
-Jis mokosi: "įkvėpsiu patirdamas protą", jis mokosi: "iškvėpsiu patirdamas protą"; jis mokosi: "įkvėpsiu pradžiugindamas protą", jis mokosi: "iškvėpsiu pradžiugindamas protą"; jis mokosi: "įkvėpsiu sutelkdamas protą", jis mokosi: "iškvėpsiu sutelkdamas protą"; jis mokosi: "įkvėpsiu išlaisvindamas protą", jis mokosi: "iškvėpsiu išlaisvindamas protą".
+Jis mokosi: „įkvėpsiu patirdamas protą“, jis mokosi: „iškvėpsiu patirdamas protą“; jis mokosi: „įkvėpsiu pradžiugindamas protą“, jis mokosi: „iškvėpsiu pradžiugindamas protą“; jis mokosi: „įkvėpsiu sutelkdamas protą“, jis mokosi: „iškvėpsiu sutelkdamas protą“; jis mokosi: „įkvėpsiu išlaisvindamas protą“, jis mokosi: „iškvėpsiu išlaisvindamas protą“.
 
-Jis mokosi: "įkvėpsiu stebėdamas nepastovumą", jis mokosi: "iškvėpsiu stebėdamas nepastovumą"; jis mokosi: "įkvėpsiu stebėdamas kaip užgęsta potraukis", jis mokosi: "iškvėpsiu stebėdamas kaip užgęsta potraukis"; jis mokosi: "įkvėpsiu stebėdamas išnykimą", jis mokosi: "iškvėpsiu stebėdamas išnykimą"; jis mokosi: "įkvėpsiu stebėdamas atsisakymą", jis mokosi: "iškvėpsiu stebėdamas atsisakymą".
+Jis mokosi: „įkvėpsiu stebėdamas nepastovumą“, jis mokosi: „iškvėpsiu stebėdamas nepastovumą“; jis mokosi: „įkvėpsiu stebėdamas kaip užgęsta potraukis“, jis mokosi: „iškvėpsiu stebėdamas kaip užgęsta potraukis“; jis mokosi: „įkvėpsiu stebėdamas išnykimą“, jis mokosi: „iškvėpsiu stebėdamas išnykimą“; jis mokosi: „įkvėpsiu stebėdamas atsisakymą“, jis mokosi: „iškvėpsiu stebėdamas atsisakymą“.
 
-Štai taip, Rahula, lavinamas, dažnai praktikuojamas kvėpavimo sąmoningumas atnešantis didžius vaisius, didžią palaimą. Taip, Rahula, išlavinęs, dažnai praktikavęs kvėpavimo sąmoningumą sužinosi, kaip pranyksta ir paskutinis kvėpavimas, tai nebus nesužinota.
+Štai taip, Rahula, lavinamas, dažnai praktikuojamas atidumas kvėpavimui atnešantis didžius vaisius, didžią palaimą. Taip, Rahula, išlavinęs, dažnai praktikavęs atidumą kvėpavimui žinosi, kaip pranyksta ir paskutinis kvėpavimas, tai nebus nesužinota.
 
 Tai pasakė Palaimintasis. Pamalonintas gerbiamas Rahula džiaugėsi Palaimintojo kalba.
 
