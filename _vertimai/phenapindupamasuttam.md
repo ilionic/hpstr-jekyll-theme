@@ -29,19 +29,19 @@ Tai pamatęs, vienuoliai, apsišvietęs tauriųjų mokinys ir materija nusivilia
 Taip pasakė Palaimintasis. Taip pasakęs, Gerai Žengęs, Mokytojas toliau pasakė štai ką:
 
 „Materija lyg putų gumulas, jausmas lyg burbulas;  
-Suvokimas lyg miražas, proto dariniai lyg banano augalas;
-O sąmonė lyg magijos šou - taip mokyta Saulės Gentainio.
-Kaip jis apie tai bemąstytų, visapusiškai tai betyrinėtų,
-Kai apžiūri iš esmės, mato: tai yra tuščia ir dyka.
-Ir šio kūno atžvilgiu Giliai Išmintingo mokyta:
-Netekusią trijų reiškinių materiją matome išmesta:
-Kai gyvybė, šiluma ir sąmonė palieka šį kūną,
-Jis guli išmestas, tapęs kitų valgiu, bevalis.
-Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;
-Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,
-Taip turėtų žiūrėti į sankaupas vienuolis energingas,
-Ar dieną, ar naktį - aiškiai suprantantis, atmenantis.
-Jis turėtų palikti visus pančius, padaryti save savo prieglobsčiu;
+Suvokimas lyg miražas, proto dariniai lyg banano augalas;  
+O sąmonė lyg magijos šou - taip mokyta Saulės Gentainio.  
+Kaip jis apie tai bemąstytų, visapusiškai tai betyrinėtų,  
+Kai apžiūri iš esmės, mato: tai yra tuščia ir dyka.  
+Ir šio kūno atžvilgiu Giliai Išmintingo mokyta:  
+Netekusią trijų reiškinių materiją matome išmesta:  
+Kai gyvybė, šiluma ir sąmonė palieka šį kūną,  
+Jis guli išmestas, tapęs kitų valgiu, bevalis.  
+Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;  
+Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,  
+Taip turėtų žiūrėti į sankaupas vienuolis energingas,  
+Ar dieną, ar naktį - aiškiai suprantantis, atmenantis.  
+Jis turėtų palikti visus pančius, padaryti save savo prieglobsčiu;  
 Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.“
 
 ### Pheṇapiṇḍūpamasuttaṃ (Palyginimas su putų gumulu, SN III.I.x.3)
@@ -62,33 +62,33 @@ Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų li
 
 **Idamavoca bhagavā.** Taip pasakė Palaimintasis.  **Idaṃ vatvāna sugato** Taip pasakęs Gerai Žengęs, **athāparaṃ etadavoca satthā –** Mokytojas toliau pasakė štai ką:
 
-**"Pheṇapiṇḍūpamaṃ rūpaṃ, vedanā bubbuḷūpamā [bubbulūpamā (sī.), pubbuḷopamā (ka.)];** 
-Materija lyg putų gumulas, jausmas lyg burbulas;
-**Marīcikūpamā saññā, saṅkhārā kadalūpamā;** 
-Suvokimas lyg miražas, proto dariniai lyg banano augalas;
-**Māyūpamañca viññāṇaṃ, desitādiccabandhunā.** 
-O sąmonė lyg magijos šou - taip mokyta Saulės Gentainio.
-**"Yathā yathā nijjhāyati, yoniso upaparikkhati;** 
-Kaip jis apie tai bemąstytų, visapusiškai tai betyrinėtų,
-**Rittakaṃ tucchakaṃ hoti, yo naṃ passati yoniso.** 
-Kai apžiūri iš esmės, mato tai yra tuščia ir dyka.
-**"Imañca [143] kāyaṃ ārabbha, bhūripaññena desitaṃ;** 
-Ir šio kūno atžvilgiu Giliai Išmintingo mokyta:
-**Pahānaṃ tiṇṇaṃ dhammānaṃ, rūpaṃ passatha [passetha (sī.)] chaḍḍitaṃ.** 
-Netekusią trijų reiškinių materiją matome išmesta.
-**"Āyu usmā ca viññāṇaṃ, yadā kāyaṃ jahantimaṃ;** 
-Kai gyvybė, šiluma ir sąmonė palieka šį kūną,
-**Apaviddho [apaviṭṭho (syā. kaṃ.)] tadā seti, parabhattaṃ acetanaṃ.** 
-jis guli išmestas, tapęs kitų valgiu, bevalis.
-**"Etādisāyaṃ santāno, māyāyaṃ bālalāpinī;** 
-Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;
-**Vadhako esa akkhāto, sāro ettha na vijjati.** 
-Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,
-**"Evaṃ khandhe avekkheyya, bhikkhu āraddhavīriyo;** 
-Taip turėtų žiūrėti į sankaupas vienuolis energingas,
-**Divā vā yadi vā rattiṃ, sampajāno paṭissato.** 
-Aiškiai suprantantis ir atidus ar dieną, ar naktį.
-**"Jaheyya sabbasaṃyogaṃ, kareyya saraṇattano;** 
-Jis turėtų palikti visus pančius, padaryti save savo prieglobsčiu;
-**Careyyādittasīsova, patthayaṃ accutaṃ pada"nti.**
-Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.
+**"Pheṇapiṇḍūpamaṃ rūpaṃ, vedanā bubbuḷūpamā [bubbulūpamā (sī.), pubbuḷopamā (ka.)];**   
+Materija lyg putų gumulas, jausmas lyg burbulas;  
+**Marīcikūpamā saññā, saṅkhārā kadalūpamā;**   
+Suvokimas lyg miražas, proto dariniai lyg banano augalas;  
+**Māyūpamañca viññāṇaṃ, desitādiccabandhunā.**   
+O sąmonė lyg magijos šou - taip mokyta Saulės Gentainio.  
+**"Yathā yathā nijjhāyati, yoniso upaparikkhati;**   
+Kaip jis apie tai bemąstytų, visapusiškai tai betyrinėtų,  
+**Rittakaṃ tucchakaṃ hoti, yo naṃ passati yoniso.**   
+Kai apžiūri iš esmės, mato tai yra tuščia ir dyka.  
+**"Imañca [143] kāyaṃ ārabbha, bhūripaññena desitaṃ;**   
+Ir šio kūno atžvilgiu Giliai Išmintingo mokyta:  
+**Pahānaṃ tiṇṇaṃ dhammānaṃ, rūpaṃ passatha [passetha (sī.)] chaḍḍitaṃ.**   
+Netekusią trijų reiškinių materiją matome išmesta.  
+**"Āyu usmā ca viññāṇaṃ, yadā kāyaṃ jahantimaṃ;**   
+Kai gyvybė, šiluma ir sąmonė palieka šį kūną,  
+**Apaviddho [apaviṭṭho (syā. kaṃ.)] tadā seti, parabhattaṃ acetanaṃ.**   
+jis guli išmestas, tapęs kitų valgiu, bevalis.  
+**"Etādisāyaṃ santāno, māyāyaṃ bālalāpinī;**   
+Toks tas tęstinumas, ši iliuzija, kvailių užkalbėtoja;  
+**Vadhako esa akkhāto, sāro ettha na vijjati.**   
+Tai mokyta esą žudikas, vidinis pagrindas tame nežinomas,  
+**"Evaṃ khandhe avekkheyya, bhikkhu āraddhavīriyo;**   
+Taip turėtų žiūrėti į sankaupas vienuolis energingas,  
+**Divā vā yadi vā rattiṃ, sampajāno paṭissato.**   
+Aiškiai suprantantis ir atidus ar dieną, ar naktį.  
+**"Jaheyya sabbasaṃyogaṃ, kareyya saraṇattano;**   
+Jis turėtų palikti visus pančius, padaryti save savo prieglobsčiu;  
+**Careyyādittasīsova, patthayaṃ accutaṃ pada"nti.**  
+Norintis nepraeinančio pagrindo, turėtų keliauti taip, lyg jo galva būtų liepsnose.  
