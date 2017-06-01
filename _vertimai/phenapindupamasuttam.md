@@ -28,8 +28,8 @@ Tai pamatęs, vienuoliai, apsišvietęs tauriųjų mokinys ir materija nusivilia
 
 Taip pasakė Palaimintasis. Taip pasakęs, Gerai Žengęs, Mokytojas toliau pasakė štai ką:
 
-> „Materija lyg putų gumulas, jausmas lyg burbulas;
->> Suvokimas lyg miražas, proto dariniai lyg banano augalas;
+„Materija lyg putų gumulas, jausmas lyg burbulas;  
+Suvokimas lyg miražas, proto dariniai lyg banano augalas;
 O sąmonė lyg magijos šou - taip mokyta Saulės Gentainio.
 Kaip jis apie tai bemąstytų, visapusiškai tai betyrinėtų,
 Kai apžiūri iš esmės, mato: tai yra tuščia ir dyka.
