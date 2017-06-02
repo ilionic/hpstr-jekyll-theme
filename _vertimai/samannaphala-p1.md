@@ -125,7 +125,7 @@ Tada gi Magadhos karalius Adžatasatus Vedehiputa pagerbė Palaimintąjį, pasve
 
 *Pūraṇakassapavādo*
 
-Štai vieną kartą, gerbiamasis, aš nuėjau pas Pūraną Kasapą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitus mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdint gi iš šono aš, gerbiamasis, štai ką pasakiau Pūranai Kasapai:
+Štai vieną kartą, gerbiamasis, aš nuėjau pas Pūraną Kasapą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitęs mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdėdamas gi iš šono aš, gerbiamasis, štai ką pasakiau Pūranai Kasapai:
 
 －Na gi yra, gerbiamas Kasapa, įvairių amatų žmonės, tokie kaip: dramblių treneriai... Nagi ar įmanoma, gerbiamas Kasapa, kad būtų nurodyti panašiai, čia pat ir iškart, regimi atsiskyrimo vaisiai?
 
@@ -139,7 +139,7 @@ Panašiai kaip kažkas paklaustas koks yra mangas, būtų aprašęs duonmedžio 
 
 *Makkhaligosālavādo*
 
-Štai vieną kartą, gerbiamasis, aš nuėjau pas Makhalį Gosalą atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitus mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdint gi iš šono aš, gerbiamasis, štai ką pasakiau Makhaliui Gosalai:
+Štai vieną kartą, gerbiamasis, aš nuėjau pas Makhalį Gosalą atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitęs mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdėdamas gi iš šono aš, gerbiamasis, štai ką pasakiau Makhaliui Gosalai:
 
 －Na gi yra, gerbiamas Gosala, įvairių amatų žmonės... Nagi ar įmanoma, gerbiamas Gosala, kad būtų nurodyti panašiai, čia pat ir iškart, regimi atsiskyrimo vaisiai?
 
@@ -153,7 +153,7 @@ Kai tai buvo pasakyta, gerbiamasis, Makhalis Gosala man štai ką pasakė:
 
 *Ajitakesakambalavādo*
 
-Štai vieną kartą, gerbiamasis, aš nuėjau pas Adžitą Kesakambalą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitus mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdint gi iš šono aš, gerbiamasis, štai ką pasakiau Adžitai Kesakambalai: 
+Štai vieną kartą, gerbiamasis, aš nuėjau pas Adžitą Kesakambalą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitęs mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdėdamas gi iš šono aš, gerbiamasis, štai ką pasakiau Adžitai Kesakambalai: 
 
 －Na gi yra, gerbiamas Adžita įvairių amatų žmonės... Nagi ar įmanoma, gerbiamas Adžita, kad būtų nurodyti panašiai, čia pat ir iškart, regimi atsiskyrimo vaisiai?
 
@@ -167,7 +167,7 @@ Kai tai buvo pasakyta, gerbiamasis, Adžitas Kesakambalas man štai ką pasakė:
 
 *Pakudhakaccāyanavādo*
 
-Štai vieną kartą, gerbiamasis, aš nuėjau pas Pakudhą Kačajaną, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitus mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdint gi iš šono aš, gerbiamasis, štai ką pasakiau Pakudhai Kačajanai:
+Štai vieną kartą, gerbiamasis, aš nuėjau pas Pakudhą Kačajaną, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitęs mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdėdamas gi iš šono aš, gerbiamasis, štai ką pasakiau Pakudhai Kačajanai:
 
 －Na gi yra, gerbiamas Kačajana, įvairių amatų žmonės... Nagi ar įmanoma, gerbiamas Kačajana, kad būtų nurodyti panašiai, čia pat ir iškart, regimi atsiskyrimo vaisiai?
 
@@ -181,7 +181,7 @@ Kai tai buvo pasakyta, gerbiamasis, Pakudha Kačajana man štai ką pasakė:
 
 *Nigaṇṭhanāṭaputtavādo*
 
-Štai vieną kartą, gerbiamasis, aš nuėjau pas Niganthą Nataputą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitus maloniais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdint gi iš šono aš, gerbiamasis, štai ką pasakiau Niganthai Nataputai:
+Štai vieną kartą, gerbiamasis, aš nuėjau pas Niganthą Nataputą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitęs maloniais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdėdamas gi iš šono aš, gerbiamasis, štai ką pasakiau Niganthai Nataputai:
 
 －Na gi yra, gerbiamas Agivesana, įvairių amatų žmonės... Nagi ar įmanoma, gerbiamas Agivesana, kad būtų nurodyti panašiai, čia pat ir iškart, regimi atsiskyrimo vaisiai?
 
@@ -195,7 +195,7 @@ Kai tai buvo pasakyta, gerbiamasis, Nigantha Nataputa man štai ką pasakė:
 
 *Sañcayabelaṭṭhaputtavādo*
 
-Štai vieną kartą, gerbiamasis, aš nuėjau pas Sančają Belathaputą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitus mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdint gi iš šono aš, gerbiamasis, štai ką pasakiau Sančajai Belathaputai:
+Štai vieną kartą, gerbiamasis, aš nuėjau pas Sančają Belathaputą, atėjęs apsikeičiau su juo mandagiais sveikinimais. Apsikeitęs mandagiais sveikinimais ir draugiškais žodžiais atsisėdau iš šono. Sėdėdamas gi iš šono aš, gerbiamasis, štai ką pasakiau Sančajai Belathaputai:
 
 －Na gi yra, gerbiamas Sančaja, įvairių amatų žmonės... Nagi ar įmanoma, gerbiamas Sančaja, kad būtų nurodyti panašiai, čia pat ir iškart, regimi atsiskyrimo vaisiai?"
 
