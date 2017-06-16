@@ -26,7 +26,7 @@ published: true
 
 **Dharma (Dhamma)** - (iš didžiosios raidės) Budos mokymai, taurioji tiesa.
 
-**dhamma** - (iš mažosios raidės) reiškinys; būsena; proto objektas.  
+**dharma (dhamma)** - (iš mažosios raidės) reiškinys; būsena; proto objektas.  
 
 **Džhana (jhāna)** - viena iš aštuonių labai aukšto ir subtilaus susitelkimo į tam tikrą objektą būsenų, kurioje protas yra ypač sąmoningas ir švarus.
 
